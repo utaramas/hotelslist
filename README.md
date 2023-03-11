@@ -18,3 +18,9 @@ To help provide information to seekers.
 [https://tawaranterbaik.page.link/tune-hotel-klia-klia2](https://tawaranterbaik.page.link/tune-hotel-klia-klia2)
 
 <hr/>
+
+### Bulgari Resort Bali afternoon tea
+
+[https://bestoffer.page.link/bvlgari-resort-bali](https://bestoffer.page.link/bvlgari-resort-bali)
+
+<hr/>
