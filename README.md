@@ -19,8 +19,14 @@ To help provide information to seekers.
 
 <hr/>
 
-### Bulgari Resort Bali afternoon tea
+### Bulgari Resort Bali
 
 [https://bestoffer.page.link/bvlgari-resort-bali](https://bestoffer.page.link/bvlgari-resort-bali)
+
+<hr/>
+
+### Six Senses Uluwatu Bali
+
+[https://bestoffer.page.link/six-senses-uluwatu-bali](https://bestoffer.page.link/six-senses-uluwatu-bali)
 
 <hr/>
