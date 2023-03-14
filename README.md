@@ -30,3 +30,10 @@ To help provide information to seekers.
 [https://bestoffer.page.link/six-senses-uluwatu-bali](https://bestoffer.page.link/six-senses-uluwatu-bali)
 
 <hr/>
+
+### A Perfect Getaway: Away Bali Legian Camakila Reviews
+
+[https://docs.google.com/document/d/1gSrN3ISZ2YWqn_Vv4WuFjNHB8SXWOdR3bRvAixEuRIk/edit#heading=h.vztk3o1cvz7o](https://docs.google.com/document/d/1gSrN3ISZ2YWqn_Vv4WuFjNHB8SXWOdR3bRvAixEuRIk/edit#heading=h.vztk3o1cvz7o)
+[https://docs.google.com/document/d/e/2PACX-1vRlpj0zD8PZRKlWFj_JedS92edXxccJsFsovTI3jgRkE8_nImCdHIMEH9I_XIhnh8hCxMUJMd_NCH1A/pub](https://docs.google.com/document/d/e/2PACX-1vRlpj0zD8PZRKlWFj_JedS92edXxccJsFsovTI3jgRkE8_nImCdHIMEH9I_XIhnh8hCxMUJMd_NCH1A/pub)
+
+<hr/>
