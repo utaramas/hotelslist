@@ -44,3 +44,9 @@ To help provide information to seekers.
 [https://modelburnbook.tumblr.com/post/712484541066084352/percutian-bajet-ke-krabi](https://modelburnbook.tumblr.com/post/712484541066084352/percutian-bajet-ke-krabi)
 
 <hr/>
+
+### Hotel murah di Batu Gajah Perak, hotel bajet
+
+[https://modelburnbook.tumblr.com/post/684935244222185472/hotel-murah-di-batu-gajah-perak-hotel-bajet](https://modelburnbook.tumblr.com/post/684935244222185472/hotel-murah-di-batu-gajah-perak-hotel-bajet)
+
+<hr/>
