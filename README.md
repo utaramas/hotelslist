@@ -50,3 +50,23 @@ To help provide information to seekers.
 [https://modelburnbook.tumblr.com/post/684935244222185472/hotel-murah-di-batu-gajah-perak-hotel-bajet](https://modelburnbook.tumblr.com/post/684935244222185472/hotel-murah-di-batu-gajah-perak-hotel-bajet)
 
 <hr/>
+
+### Homestay Berdekatan Kolej Sains Kesihatan Bersekutu Ulu Kinta
+
+Tulip Hotel Ipoh
+19, Persiaran Sunway City Ipoh 2/2, Sunway City, 31150 Ipoh, Negeri Perak, Malaysia +60 5-210 4107
+[http://bit.do/Tulip-Hotel-Ipoh](http://bit.do/Tulip-Hotel-Ipoh)
+
+Indra Hotel - Boutique Suites, Ipoh
+No.29, Lengkok Tasek Timur 1A, Pusat Perdagangan Tasek Indra, 31400 Ipoh, Negeri Perak, Malaysia +60 5-549 1333
+[http://bit.do/Indra-Hotel-Boutique-Suites-Ipoh](http://bit.do/Indra-Hotel-Boutique-Suites-Ipoh)
+
+<hr/>
+
+### Hotel Berdekatan Kolej Sains Kesihatan Bersekutu Ulu Kinta
+
+Indra Hotel (HQ)
+No.20-24, Laluan Tasek Timur 1, Pusat Perdagangan Tasek Indra, 31400 Ipoh, Negeri Perak, Malaysia +60 5-541 7533
+[http://bit.do/Indra-Hotel-HQ](http://bit.do/Indra-Hotel-HQ)
+
+<hr/>
