@@ -70,3 +70,28 @@ No.20-24, Laluan Tasek Timur 1, Pusat Perdagangan Tasek Indra, 31400 Ipoh, Neger
 [http://bit.do/Indra-Hotel-HQ](http://bit.do/Indra-Hotel-HQ)
 
 <hr/>
+
+### Homestay berdekatan umk bachok, hotel berdekatan umk bachok, homestay near umk bachok, hotel near umk bachok
+
+BAYU MELAWI CHALET
+[http://bit.do/BAYU-MELAWI-CHALET](http://bit.do/BAYU-MELAWI-CHALET)
+Kampung Sungai Dua, Pantai Melawi, 16300 Bachok, Kelantan, Malaysia
++60 1-700-81-8415
+
+Homestay Tok Ayah
+[http://bit.do/Homestay-Tok-Ayah](http://bit.do/Homestay-Tok-Ayah)
+16310 Bachok, Kelantan, Malaysia
++60 11-3613 4687
+
+Asrama Ibs UMK Bachok
+16310 Jajahan Bachok, Kelantan, Malaysia
+
+Friends Homestay Bachok
+16310 Jajahan Bachok, Kelantan, Malaysia
++60 10-916 1618
+
+D'Ombak Homestay Pantai Baru
+Kg Pantai Baru, 16300 Jajahan Bachok, Kelantan, Malaysia
++60 13-923 3383
+
+<hr/>
