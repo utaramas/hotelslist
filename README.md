@@ -127,7 +127,7 @@ Keseluruhan hotel ni...kalau nak bagi rating, kalau saya la, rasanya boleh bagi 
 
 Hotel di Melaka dekat Mahkota Medical Centre, hotel dekat mahkota medical centre melaka, hotel di sekitar mahkota medical center melaka, hotel dekat mahkota medical center melaka, hotel dekat mahkota medical centre malaka, hotel di melaka dekat mahkota hospital
 
-Estadia Hotel (⭐⭐⭐) Setaraf (⭐⭐⭐⭐) - 100 Meter
+Estadia Hotel (⭐⭐⭐) Setara (⭐⭐⭐⭐) - 100 Meter
 
 [http://bit.do/Estadia-Hotel](http://bit.do/Estadia-Hotel)
 
