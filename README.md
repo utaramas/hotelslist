@@ -122,3 +122,39 @@ Keseluruhan hotel ni...kalau nak bagi rating, kalau saya la, rasanya boleh bagi 
 [http://bit.do/Hallmark-Crown-Hotel](http://bit.do/Hallmark-Crown-Hotel)
 
 <hr/>
+
+### Hotel di Melaka dekat Mahkota Medical Centre
+
+Hotel di Melaka dekat Mahkota Medical Centre, hotel dekat mahkota medical centre melaka, hotel di sekitar mahkota medical center melaka, hotel dekat mahkota medical center melaka, hotel dekat mahkota medical centre malaka, hotel di melaka dekat mahkota hospital
+
+Estadia Hotel (⭐⭐⭐) Setaraf (⭐⭐⭐⭐) - 100 Meter
+
+[http://bit.do/Estadia-Hotel](http://bit.do/Estadia-Hotel)
+
+100 meter jauhnya dari Pusat Perubatan Hospital Mahkota, tidak hairanlah ramai pesakit dari pelbagai kawasan memilih Estadia Hotel sebagai tempat menginap sepanjang menjalani rawatan.
+
+Hatten Hotel (⭐⭐⭐⭐) Setara (⭐⭐⭐⭐⭐) - 150 Meter
+
+[http://bit.do/Hatten-Hotel](http://bit.do/Hatten-Hotel)
+
+Selain Hotel Estadie, Hatten Hotel, yang terletak 150 meter dari Hospital Pusat Perubatan Mahkota, juga merupakan pilihan menarik bagi pesakit dari pelbagai kawasan yang menjalani rawatan.
+
+Fenix ​​Inn (Hotel Budget) - 250 Meter
+
+[http://bit.do/Fenix-Inn](http://bit.do/Fenix-Inn)
+
+Tidak seperti Hotel 2 sebelumnya, Fenix ​​Inn adalah hotel Budget dengan lokasi strategik di Melaka, Malaysia.
+
+Comfort Two (Hotel Budget) - 150 Meter
+
+[http://bit.do/Comfort-Two](http://bit.do/Comfort-Two)
+
+Untuk pilihan seterusnya, anda boleh memilih Comfort Two Hotel di mana hotel ini hanya 150 meter dari Hospital Pusat Perubatan Mahkota.
+
+Mahkota Hotel Melaka (⭐⭐⭐⭐) - 350 Meter
+
+[http://bit.do/Mahkota-Hotel](http://bit.do/Mahkota-Hotel)
+
+Terletak berhampiran pusat bandar, Mahkota Melaka Hotel hanya 350 meter dari Pusat Perubatan Hospital Mahkota, selain terdapat juga pusat-pusat membeli-belah, jalan-jalan, restoran & bar di sekitar Hotel.
+
+<hr/>
