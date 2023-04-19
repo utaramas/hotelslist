@@ -207,3 +207,11 @@ Nota:Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di H
 [https://sites.google.com/view/impianahotelklccreview/hotel-berhampiran-klcc](https://sites.google.com/view/impianahotelklccreview/hotel-berhampiran-klcc)
 
 <hr/>
+
+### Hotel Near KLCC Twin Tower
+
+Terletak bertentangan dengan Pusat Konvensyen Kuala Lumpur (KLCC), hotel moden di bangunan mewah ini berjarak 11 minit berjalan kaki dari Menara Berkembar PETRONAS dan 7 km dari stesen kereta api Kuala Lumpur Sentral.
+
+[https://sites.google.com/view/impianahotelklccreview/Hotel-Near-KLCC-Twin-Tower](https://sites.google.com/view/impianahotelklccreview/Hotel-Near-KLCC-Twin-Tower)
+
+<hr/>
