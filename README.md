@@ -215,3 +215,11 @@ Terletak bertentangan dengan Pusat Konvensyen Kuala Lumpur (KLCC), hotel moden d
 [https://sites.google.com/view/impianahotelklccreview/Hotel-Near-KLCC-Twin-Tower](https://sites.google.com/view/impianahotelklccreview/Hotel-Near-KLCC-Twin-Tower)
 
 <hr/>
+
+### Hotel Dekat Twin Tower Kuala Lumpur
+
+Berdekatan dengan KLCC dan Menara Berkembar. Hotel yang sangat bagus yang mempunyai lokasi yang bagus dan bilik yang bagus dan beberapa bilik mempunyai pemandangan yang bagus, saya suka segala-galanya dalam laman web mereka. Perkhidmatan yang mereka ada semuanya dan mereka mempunyai begitu banyak ciri dan nilai. Hotel ini mahal sedikit tetapi wang berbaloi. Saya harap saya berada di sana untuk berkongsi pengalaman ini. Mereka mempunyai tempahan terus yang lebih murah daripada agensi pelancongan dalam talian. Tempah melalui laman web mereka untuk mendapatkan diskaun mereka.
+
+[https://sites.google.com/view/impianahotelklccreview/Hotel-Dekat-Twin-Tower-Kuala-Lumpur](https://sites.google.com/view/impianahotelklccreview/Hotel-Dekat-Twin-Tower-Kuala-Lumpur)
+
+<hr/>
