@@ -223,3 +223,9 @@ Berdekatan dengan KLCC dan Menara Berkembar. Hotel yang sangat bagus yang mempun
 [https://sites.google.com/view/impianahotelklccreview/Hotel-Dekat-Twin-Tower-Kuala-Lumpur](https://sites.google.com/view/impianahotelklccreview/Hotel-Dekat-Twin-Tower-Kuala-Lumpur)
 
 <hr/>
+
+### 12 Hotel Kuala Lumpur View Petronas Towers
+
+[https://www.facebook.com/photo?fbid=1092442318010764&set=a.1092443151344014](https://www.facebook.com/photo?fbid=1092442318010764&set=a.1092443151344014)
+
+<hr/>
