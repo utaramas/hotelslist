@@ -229,3 +229,9 @@ Berdekatan dengan KLCC dan Menara Berkembar. Hotel yang sangat bagus yang mempun
 [https://www.facebook.com/photo?fbid=1092442318010764&set=a.1092443151344014](https://www.facebook.com/photo?fbid=1092442318010764&set=a.1092443151344014)
 
 <hr/>
+
+### Senarai Hotel Murah Di Gopeng - Hotel Bajet di Gopeng Perak
+
+[https://www.facebook.com/photo?fbid=1090526041535725&set=a.1090529671535362](https://www.facebook.com/photo?fbid=1090526041535725&set=a.1090529671535362)
+
+<hr/>
