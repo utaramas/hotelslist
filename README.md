@@ -241,3 +241,9 @@ Berdekatan dengan KLCC dan Menara Berkembar. Hotel yang sangat bagus yang mempun
 [https://www.facebook.com/photo?fbid=1085792638675732&set=a.1085794265342236](https://www.facebook.com/photo?fbid=1085792638675732&set=a.1085794265342236)
 
 <hr/>
+
+### Senarai hotel murah di lumut, senarai hotel bajet di lumut perak, hotel murah di lumut perak, hotel murah di lumut, hotel bajet di lumut
+
+[https://www.facebook.com/photo/?fbid=1084960678758928&set=a.1084961445425518](https://www.facebook.com/photo/?fbid=1084960678758928&set=a.1084961445425518)
+
+<hr/>
