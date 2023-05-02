@@ -337,3 +337,13 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 [https://www.facebook.com/photo/?fbid=1070257300229266&set=a.1070257996895863](https://www.facebook.com/photo/?fbid=1070257300229266&set=a.1070257996895863)
 
 <hr/>
+
+### DoubleTree by Hilton Shah Alam i-City menyediakan penginapan berhampiran pusat membeli-belah central I-City
+
+Hanya 6 minit berjalan kaki ke I-City, yang terletak bersebelahan dengan hotel ini.
+
+DoubleTree by Hilton Shah Alam i-City. Finance Avenue, I-City, 40000 Shah Alam, Selangor, Malaysia. 🕾 (+60) 356500200. 3F7M+88 Shah Alam, Selangor, Malaysia.
+
+Tempah online via Agoda, [http://bit.ly/3JFua9j](http://bit.ly/3JFua9j)
+
+<hr/>
