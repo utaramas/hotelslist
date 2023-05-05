@@ -286,7 +286,7 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 1. Sun Inns Hotel Sitiawan, [https://bit.ly/3sFz5ha](https://bit.ly/3sFz5ha)
 
-2. Brezza Hotel Sitiawan, https://bit.ly/37PPicj
+2. Brezza Hotel Sitiawan, [https://bit.ly/37PPicj](https://bit.ly/37PPicj)
 
 3. Mornington Hotel Sitiawan, https://bit.ly/3FPFeN7
 
