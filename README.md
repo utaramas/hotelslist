@@ -284,7 +284,7 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 ### Senarai Hotel Penginapan Murah di Sitiawan Perak
 
-1. Sun Inns Hotel Sitiawan, https://bit.ly/3sFz5ha
+1. Sun Inns Hotel Sitiawan, [https://bit.ly/3sFz5ha](https://bit.ly/3sFz5ha)
 
 2. Brezza Hotel Sitiawan, https://bit.ly/37PPicj
 
