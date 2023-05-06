@@ -288,7 +288,7 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 2. Brezza Hotel Sitiawan, [https://bit.ly/37PPicj](https://bit.ly/37PPicj)
 
-3. Mornington Hotel Sitiawan, https://bit.ly/3FPFeN7
+3. Mornington Hotel Sitiawan, [https://bit.ly/3FPFeN7](https://bit.ly/3FPFeN7)
 
 4. Hotel Sitiawan, https://bit.ly/3wtkW7X
 
