@@ -292,7 +292,7 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 4. Hotel Sitiawan, [https://bit.ly/3wtkW7X](https://bit.ly/3wtkW7X)
 
-5. APPLE Suites Hotel, https://bit.ly/3Mpu0RO
+5. APPLE Suites Hotel, [https://bit.ly/3Mpu0RO](https://bit.ly/3Mpu0RO)
 
 6. Dragon Door Hotel, https://bit.ly/3wpuxfK
 
