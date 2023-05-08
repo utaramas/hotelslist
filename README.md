@@ -290,7 +290,7 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 3. Mornington Hotel Sitiawan, [https://bit.ly/3FPFeN7](https://bit.ly/3FPFeN7)
 
-4. Hotel Sitiawan, https://bit.ly/3wtkW7X
+4. Hotel Sitiawan, [https://bit.ly/3wtkW7X](https://bit.ly/3wtkW7X)
 
 5. APPLE Suites Hotel, https://bit.ly/3Mpu0RO
 
