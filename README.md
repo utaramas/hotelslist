@@ -296,7 +296,7 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 6. Dragon Door Hotel, [https://bit.ly/3wpuxfK](https://bit.ly/3wpuxfK)
 
-7. Radiant Hotel, https://bit.ly/38sXy2u
+7. Radiant Hotel, [https://bit.ly/38sXy2u](https://bit.ly/38sXy2u)
 
 8. OSCAR SUITES HOTEL, https://bit.ly/3sBO3F2
 
