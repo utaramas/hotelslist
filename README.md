@@ -294,7 +294,7 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 5. APPLE Suites Hotel, [https://bit.ly/3Mpu0RO](https://bit.ly/3Mpu0RO)
 
-6. Dragon Door Hotel, https://bit.ly/3wpuxfK
+6. Dragon Door Hotel, [https://bit.ly/3wpuxfK](https://bit.ly/3wpuxfK)
 
 7. Radiant Hotel, https://bit.ly/38sXy2u
 
