@@ -300,7 +300,7 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 8. OSCAR SUITES HOTEL, [https://bit.ly/3sBO3F2](https://bit.ly/3sBO3F2)
 
-9. OYO 43915 T P Hotel, https://bit.ly/3leLyEz
+9. OYO 43915 T P Hotel, [https://bit.ly/3leLyEz](https://bit.ly/3leLyEz)
 
 10. Apartemen 1450 m² dengan 4 kamar tidur dan 2 kamar mandi pribadi di Seri Manjung, https://bit.ly/3NkBHck
 
