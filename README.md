@@ -202,7 +202,9 @@ Nota:Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di H
 
 ### Hotel Berhampiran KLCC
 
-11 minit berjalan kaki dari Menara Berkembar PETRONAS. Selesa dengan lokasi yang strategik di pusat bandar Kuala Lumpur. Impiana Klcc Hotel & Spa, 13, Jalan Pinang, Kuala Lumpur, 50450 Kuala Lumpur, Malaysia. +60 321471111. 5P36+CG Kuala Lumpur, Wilayah Persekutuan Kuala Lumpur, Malaysia. Tempah online via Agoda.
+11 minit berjalan kaki dari Menara Berkembar PETRONAS. Selesa dengan lokasi yang strategik di pusat bandar Kuala Lumpur. 
+
+Impiana Klcc Hotel & Spa, 13, Jalan Pinang, Kuala Lumpur, 50450 Kuala Lumpur, Malaysia. +60 321471111. 5P36+CG Kuala Lumpur, Wilayah Persekutuan Kuala Lumpur, Malaysia. Tempah online via Agoda.
 
 [https://sites.google.com/view/impianahotelklccreview/hotel-berhampiran-klcc](https://sites.google.com/view/impianahotelklccreview/hotel-berhampiran-klcc)
 
