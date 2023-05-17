@@ -101,7 +101,11 @@ Kg Pantai Baru, 16300 Jajahan Bachok, Kelantan, Malaysia
 
 Senarai Homestay Murah di Cameron Highland khas buat mereka yang merancang percutian bajet bawah Rm100 & Rm200 Semalam. Sesuai untuk percutian.
 
-Homestay murah di cameron highland, homestay murah di cameron highland bawah rm100, homestay murah di cameron highland 2018, homestay murah di cameron highland 2019, hotel murah di cameron highlands, penginapan murah di cameron highlands, hotel murah di cameron highland, hotel murah di cameron highland bawah rm100, penginapan murah di cameron highland, hotel murah di cameron highland berdekatan pasar malam.
+Homestay murah di cameron highland, homestay murah di cameron highland bawah rm100, homestay murah di cameron highland 2018, homestay murah di cameron highland 2019.
+
+Hotel murah di cameron highlands, penginapan murah di cameron highlands, hotel murah di cameron highland, hotel murah di cameron highland bawah rm100.
+
+Penginapan murah di cameron highland, hotel murah di cameron highland berdekatan pasar malam.
 
 Darulmakmur Chalet, Cameron Highlands, Malaysia
 [https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1843273&hl=ms&hid=8418826](https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1843273&hl=ms&hid=8418826)
