@@ -122,7 +122,7 @@ Barakah Sufi Homestay, Cameron Highlands, Malaysia
 
 Hotel Review: Hallmark Crown Hotel di Melaka jarak dekat A Famosa dan ada kolam di Malaysia 2023.
 
-Keseluruhan hotel ni...kalau nak bagi rating, kalau saya la, rasanya boleh bagi dalam...6.9 kot 6.9 per 10 itu pun sebab harga dia,kalau kita compare price dengan value, walaupun ada beberapa kekurangan, tapi ikut harga dia......dengan saiz bilik yang kita dapat ni, dan lokasi dia juga, berbanding dengan hotel-hotel sekitar ni yang lebih mahal, boleh la dapat 6.9.
+Keseluruhan hotel ni...kalau nak bagi rating, kalau saya la, rasanya boleh bagi dalam...6.9 kot 6.9 per 10 itu pun sebab harga dia, kalau kita compare price dengan value, walaupun ada beberapa kekurangan, tapi ikut harga dia......dengan saiz bilik yang kita dapat ni, dan lokasi dia juga, berbanding dengan hotel-hotel sekitar ni yang lebih mahal, boleh la dapat 6.9.
 
 [http://bit.do/Hallmark-Crown-Hotel](http://bit.do/Hallmark-Crown-Hotel)
 
@@ -130,7 +130,9 @@ Keseluruhan hotel ni...kalau nak bagi rating, kalau saya la, rasanya boleh bagi 
 
 ### Hotel di Melaka dekat Mahkota Medical Centre
 
-Hotel di Melaka dekat Mahkota Medical Centre, hotel dekat mahkota medical centre melaka, hotel di sekitar mahkota medical center melaka, hotel dekat mahkota medical center melaka, hotel dekat mahkota medical centre malaka, hotel di melaka dekat mahkota hospital
+Hotel di Melaka dekat Mahkota Medical Centre, hotel dekat mahkota medical centre melaka, hotel di sekitar mahkota medical center melaka.
+
+Hotel dekat mahkota medical center melaka, hotel dekat mahkota medical centre malaka, hotel di melaka dekat mahkota hospital
 
 Estadia Hotel (⭐⭐⭐) Setara (⭐⭐⭐⭐) - 100 Meter
 
