@@ -251,7 +251,9 @@ Tempah melalui laman web mereka untuk mendapatkan diskaun mereka.
 
 <hr/>
 
-### Hotel Bajet di Teluk Intan, Hotel Murah di Teluk Intan, Hotel Budget di Teluk Intan, Senarai Hotel di Teluk Intan Perak, Hotel Paling Best di Teluk Intan, Hotel di Teluk Intan
+### Hotel Bajet di Teluk Intan, Hotel Murah di Teluk Intan
+
+Hotel Budget di Teluk Intan, Senarai Hotel di Teluk Intan Perak, Hotel Paling Best di Teluk Intan, Hotel di Teluk Intan.
 
 [https://www.facebook.com/photo?fbid=1085792638675732&set=a.1085794265342236](https://www.facebook.com/photo?fbid=1085792638675732&set=a.1085794265342236)
 
