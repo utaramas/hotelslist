@@ -118,7 +118,7 @@ Barakah Sufi Homestay, Cameron Highlands, Malaysia
 
 <hr/>
 
-### Hotel Review: Hallmark Crown Hotel di Melaka jarak dekat A Famosa dan ada kolam di Malaysia
+### Hallmark Crown Hotel di Melaka jarak dekat A Famosa dan ada kolam di Malaysia
 
 Hotel Review: Hallmark Crown Hotel di Melaka jarak dekat A Famosa dan ada kolam di Malaysia 2023.
 
