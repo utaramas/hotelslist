@@ -72,7 +72,9 @@ No.20-24, Laluan Tasek Timur 1, Pusat Perdagangan Tasek Indra, 31400 Ipoh, Neger
 
 <hr/>
 
-### Homestay berdekatan umk bachok, hotel berdekatan umk bachok, homestay near umk bachok, hotel near umk bachok
+### Homestay berdekatan umk bachok, hotel berdekatan umk bachok
+
+Homestay near umk bachok, hotel near umk bachok.
 
 BAYU MELAWI CHALET
 [http://bit.do/BAYU-MELAWI-CHALET](http://bit.do/BAYU-MELAWI-CHALET)
