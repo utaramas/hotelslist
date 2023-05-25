@@ -329,7 +329,9 @@ Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel 
 
 <hr/>
 
-### Hotel murah di batu gajah perak, hotel bajet di batu gajah perak, senarai hotel di batu gajah perak, hotel di batu gajah perak
+### Hotel murah di batu gajah perak, hotel bajet di batu gajah perak
+
+Senarai hotel di batu gajah perak, hotel di batu gajah perak.
 
 Hotel di batu gajah, penginapan di batu gajah perak, hotel in batu gajah perak, hotel in batu gajah town.
 
