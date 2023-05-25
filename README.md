@@ -337,7 +337,7 @@ Hotel di batu gajah, penginapan di batu gajah perak, hotel in batu gajah perak, 
 
 Berikut Senarai Hotel Murah Di Batu Gajah Perak :
 
-1. Royale Hotel https://bit.ly/3sqLFRn
+1. Royale Hotel [https://bit.ly/3sqLFRn](https://bit.ly/3sqLFRn)
 3 Bintang
 Lot 1125, jalan pejabat pos, Batu Gajah, Batu Gajah, Batu Gajah, Malaysia, 31000
 Harga semalam serendah RM 93
