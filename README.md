@@ -342,7 +342,7 @@ Berikut Senarai Hotel Murah Di Batu Gajah Perak :
 Lot 1125, jalan pejabat pos, Batu Gajah, Batu Gajah, Batu Gajah, Malaysia, 31000
 Harga semalam serendah RM 93
 
-2. Pine Boutique Hotel, https://bit.ly/3kTsXO7
+2. Pine Boutique Hotel, [https://bit.ly/3kTsXO7](https://bit.ly/3kTsXO7)
 
 3. Sunshine Hotel, https://bit.ly/3vYQG5R
 
