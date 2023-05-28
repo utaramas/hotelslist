@@ -346,7 +346,7 @@ Harga semalam serendah RM 93
 
 3. Sunshine Hotel, [https://bit.ly/3vYQG5R](https://bit.ly/3vYQG5R)
 
-4. HOMESTAY IMPIAN, https://bit.ly/3Pa2xp5
+4. HOMESTAY IMPIAN, [https://bit.ly/3Pa2xp5](https://bit.ly/3Pa2xp5)
 
 5. Bungalo 140 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Gopeng https://bit.ly/3l1CMt7
 
