@@ -350,7 +350,7 @@ Harga semalam serendah RM 93
 
 5. Bungalo 140 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Gopeng [https://bit.ly/3l1CMt7](https://bit.ly/3l1CMt7)
 
-6. Rumah 1200 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Batu Gajah https://bit.ly/39979Lu
+6. Rumah 1200 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Batu Gajah [https://bit.ly/39979Lu](https://bit.ly/39979Lu)
 
 7. Bemban Garden Homestay https://bit.ly/3P9k94v
 
