@@ -352,7 +352,7 @@ Harga semalam serendah RM 93
 
 6. Rumah 1200 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Batu Gajah [https://bit.ly/39979Lu](https://bit.ly/39979Lu)
 
-7. Bemban Garden Homestay https://bit.ly/3P9k94v
+7. Bemban Garden Homestay [https://bit.ly/3P9k94v](https://bit.ly/3P9k94v)
 
 8. Rumah 2400 m² dengan 5 kamar tidur dan 3 kamar mandi pribadi di Batu Gajah https://bit.ly/3yqT4E4
 
