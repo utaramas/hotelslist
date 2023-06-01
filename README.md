@@ -354,10 +354,10 @@ Harga semalam serendah RM 93
 
 7. Bemban Garden Homestay [https://bit.ly/3P9k94v](https://bit.ly/3P9k94v)
 
-8. Rumah 2400 m² dengan 5 kamar tidur dan 3 kamar mandi pribadi di Batu Gajah https://bit.ly/3yqT4E4
+8. Rumah 2400 m² dengan 5 kamar tidur dan 3 kamar mandi pribadi di Batu Gajah [https://bit.ly/3yqT4E4](https://bit.ly/3yqT4E4)
 
 Nota:
-Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel / Penginapan, Lebih baik jika anda menempah Hotel Hotel atau Tempahan Hotel Online terlebih dahulu sebelum berlepas. Sebelum bilik penuh di Tempah oleh Orang Lain.
+Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel / Penginapan, Lebih baik jika anda menempah Hotel atau Tempahan Hotel Online terlebih dahulu sebelum berlepas. Sebelum bilik penuh di Tempah oleh Orang Lain.
 
 [https://www.facebook.com/photo/?fbid=1070257300229266&set=a.1070257996895863](https://www.facebook.com/photo/?fbid=1070257300229266&set=a.1070257996895863)
 
