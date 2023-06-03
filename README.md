@@ -392,7 +392,7 @@ Penginapan Di Parit Buntar, Hotel Budget Di Parit Buntar Perak, Hotel Budget Di 
 Chalet Di Parit Buntar, Homestay Murah Di Parit Buntar.
 
 Berikut Senarai Hotel Murah Di Parit Buntar :
-1. http://bit.do/Hotel-Damai 
+1. [http://bit.do/Hotel-Damai](http://bit.do/Hotel-Damai)
 3 Bintang
 Lot 6298, Jalan Taiping, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM51
