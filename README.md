@@ -402,7 +402,7 @@ Harga semalam serendah RM51
 Lintang Bestari 1, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM55
 
-3. http://bit.do/K-Garden-Hotel
+3. [http://bit.do/K-Garden-Hotel](http://bit.do/K-Garden-Hotel)
 2 Bintang
 No. 1, Lorong Ria , Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM79
