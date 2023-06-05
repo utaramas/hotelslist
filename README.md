@@ -397,7 +397,7 @@ Berikut Senarai Hotel Murah Di Parit Buntar :
 Lot 6298, Jalan Taiping, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM51
 
-2. http://bit.do/Frasers-Inn
+2. [http://bit.do/Frasers-Inn](http://bit.do/Frasers-Inn)
 2 Bintang
 Lintang Bestari 1, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM55
