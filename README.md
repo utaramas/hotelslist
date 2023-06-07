@@ -411,7 +411,7 @@ Harga semalam serendah RM79
 29, JALAN PEKAKA 5, TAMAN PEKAKA, 14300 NIBONG TEBAL, PULAU PINANG, Parit Buntar, Parit Buntar, Malaysia, 14300
 Harga semalam serendah RM79
 
-5. http://bit.do/AMIMAS-HOMESTAY
+5. [http://bit.do/AMIMAS-HOMESTAY](http://bit.do/AMIMAS-HOMESTAY)
 Parit Buntar, Parit Buntar, Malaysia
 Harga semalam serendah RM131
 
