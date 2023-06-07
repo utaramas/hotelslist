@@ -407,7 +407,7 @@ Harga semalam serendah RM55
 No. 1, Lorong Ria , Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM79
 
-4. http://bit.do/Thanks-Hotel
+4. [http://bit.do/Thanks-Hotel](http://bit.do/Thanks-Hotel)
 29, JALAN PEKAKA 5, TAMAN PEKAKA, 14300 NIBONG TEBAL, PULAU PINANG, Parit Buntar, Parit Buntar, Malaysia, 14300
 Harga semalam serendah RM79
 
