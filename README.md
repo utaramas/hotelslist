@@ -415,7 +415,7 @@ Harga semalam serendah RM79
 Parit Buntar, Parit Buntar, Malaysia
 Harga semalam serendah RM131
 
-KLik Sini http://bit.do/HotelMurahDiParitBuntar Untuk mendapatkan Diskaun dan Melihat Semua Tempat Penginapan.
+KLik Sini [http://bit.do/HotelMurahDiParitBuntar](http://bit.do/HotelMurahDiParitBuntar)Untuk mendapatkan Diskaun dan Melihat Semua Tempat Penginapan.
 
 Nota:Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel / Penginapan, Lebih baik jika anda menempah Hotel Hotel atau Tempahan Hotel Online terlebih dahulu sebelum berlepas. Sebelum bilik penuh di Tempah oleh Orang Lain.
 
