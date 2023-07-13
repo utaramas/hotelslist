@@ -420,3 +420,14 @@ KLik Sini [http://bit.do/HotelMurahDiParitBuntar](http://bit.do/HotelMurahDiPari
 Nota:Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel / Penginapan, Lebih baik jika anda menempah Hotel Hotel atau Tempahan Hotel Online terlebih dahulu sebelum berlepas. Sebelum bilik penuh di Tempah oleh Orang Lain.
 
 <hr/>
+
+### https://twitter.com/homestaynear
+
+https://twitter.com/homestaynear
+
+[https://twitter.com/homestaynear](https://twitter.com/homestaynear)
+[https://nitter.net/homestaynear](https://nitter.net/homestaynear)
+[https://nitter.fdn.fr/homestaynear](https://nitter.fdn.fr/homestaynear)
+[https://nitter.fdn.fr/homestaynear/rss](https://nitter.fdn.fr/homestaynear/rss)
+
+<hr/>
