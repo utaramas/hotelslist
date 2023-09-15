@@ -431,3 +431,9 @@ https://twitter.com/homestaynear
 [https://nitter.fdn.fr/homestaynear/rss](https://nitter.fdn.fr/homestaynear/rss)
 
 <hr/>
+
+### Terinspirasi Bio FB Mbak Lusi Setyawati
+
+🇸🇬🇲🇾🇨🇳🇭🇰🇲🇴🇸🇦🇮🇳🇹🇭🇴🇲🇩🇪🇵🇹🇪🇸🇯🇵🇧🇭🇧🇷
+
+<hr/>
