@@ -446,19 +446,21 @@ START / MEPO :
 ✈️JUANDA AIRPORT - SURABAYA
 Keberangkatan : 4 - 6 DESEMBER 2023
 BIAYA : Rp 2.750.000,-/pax
+
 ▶️SINGAPORE :
 📍Marlion Park
 📍Garden By The Bye
 📍USS
 📍Masjid Sultan
 📍Jewel Changi
+
 ▶️MALAYSIA :
 📍Batu Caved
 📍KL Love Dataran Merdeka
 📍KLCC Twin Tower
 📍Genting Highland
 📍Istana Merdeka
---------------------------------------------------------------------
+
 ▶️INCLUDE :
 ✅️Tiket Pesawat PP
 ✅️Hotel 2 Malam di KL (1 kamar 2 Org)
@@ -466,6 +468,7 @@ BIAYA : Rp 2.750.000,-/pax
 ✅️Tour Leader/Tour Guide
 ✅️Dokumentasi
 ✅️Transportasi
+
 ▶️️EXCLUDE :
 🚫Keperluan Pribadi
 🚫Makan
@@ -473,10 +476,12 @@ BIAYA : Rp 2.750.000,-/pax
 🚫Tipping Guide & Driver RM100
 🚫Tiket Gondola Genting Highland RM18
 🚫Bagasi
+
 Note :
 * Daftar=Dp 1.5Jt (issued tiket-non Refund)
 * Pelunasan H-14hr sebelum keberangkatan
 * Peserta diwajibkan hadir di airport 3jam sblm keberangkatan, check in di bantu Biro & wajib Booster
+
 INFO & PENDAFTARAN HUB :
 CV.DEWA BACKPACKER
 Office : Kp.Makasar-Jakarta Timur
