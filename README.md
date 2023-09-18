@@ -492,3 +492,9 @@ Wa :
 "Let's Traveling With Us"
 
 <hr/>
+
+### Tertarik Dengan Negara Polandia
+
+Well, infonya biaya hidup di Polandia merupakan yang terkecil se-eropa jadi tertarik banget belajar mengenai Polandia lebih banyak.
+
+<hr/>
