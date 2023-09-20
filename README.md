@@ -504,3 +504,9 @@ Well, infonya biaya hidup di Polandia merupakan yang terkecil biaya hidup se-ero
 Well, salah satu teman bikin status wa berisi belajar bahasa arab gratis memakai buku lisan arab. Sulit buat nolak.
 
 <hr/>
+
+### Kelas Tahsin Dewasa Pria
+
+Well, salah satu teman fb update status berisi informasi kelas tahsin dewasa pria mulai bulan oktober 2023.
+
+<hr/>
