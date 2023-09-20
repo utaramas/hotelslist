@@ -495,6 +495,12 @@ Wa :
 
 ### Tertarik Dengan Negara Polandia
 
-Well, infonya biaya hidup di Polandia merupakan yang terkecil biaya hidup se-eropa jadi tertarik banget belajar mengenai Polandia lebih banyak.
+Well, infonya biaya hidup di Polandia merupakan yang terkecil biaya hidup se-eropa, jadi tertarik banget belajar mengenai Polandia lebih banyak.
+
+<hr/>
+
+### Belajar Lisan Arab
+
+Well, salah satu teman bikin status wa berisi belajar bahasa arab gratis memakai buku lisan arab. Sulit buat nolak.
 
 <hr/>
