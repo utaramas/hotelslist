@@ -516,3 +516,27 @@ Well, salah satu teman fb update status berisi informasi kelas tahsin dewasa pri
 Agar tidak salah makna dalam percakapan bahasa Arab maka bunyi huruf harus benar, untuk itu perlu belajar bunyi huruf.
 
 <hr/>
+
+### Colomadu 2 Reddoorz Syariah Near Universitas Muhammadiyah Surakarta
+
+- 10 menit ke Universitas Muhammadiyah Surakarta.
+- 16 menit ke Bandar Udara Internasional Adi Soemarmo.
+- 7 menit ke Embarkasi Haji Donohudan Boyolali.
+- 10 menit ke Pondok Pesantren AL-IHSAN PUTRI.
+- 8 menit ke Gerbang Tol Ngemplak.
+
+https://www.facebook.com/pages/UMS-Universitas-Muhammadiyah-Surakarta/463569667039805
+
+https://www.facebook.com/permalink.php?story_fbid=pfbid0ivAcD4jW616u8adfvqNWUS5MCcUUJEJqW8ukcVh7hbnRtBHjFiRH78BcQmLRAqecl&id=100063753002741
+
+https://www.facebook.com/photo/?fbid=840933724708387&set=a.605970084871420
+
+https://www.facebook.com/pages/Pemkot-Solo/307135782657312
+
+https://www.facebook.com/events/708921454691968/
+
+https://www.facebook.com/photo/?fbid=840950668040026&set=gm.708921494691964
+
+https://www.facebook.com/pages/Gedung-Induk-Siti-Walidah/307273109648838
+
+<hr/>
