@@ -540,3 +540,29 @@ https://www.facebook.com/photo/?fbid=840950668040026&set=gm.708921494691964
 https://www.facebook.com/pages/Gedung-Induk-Siti-Walidah/307273109648838
 
 <hr/>
+
+### Reddoorz Apartment Near Exit Toll Colomadu - 12 Menit ke Pintu Tol Colomadu
+
+- 12 menit ke Pintu Tol Colomadu.
+- 7 menit ke Universitas Islam Negeri Raden Mas Said Surakarta.
+- 5 menit ke RS Khusus Orthopedi Karima Utama.
+- 8 menit ke TERMINAL KARTASURA.
+- 5 menit ke Universitas Muhammadiyah Surakarta.
+- 6 menit ke RS UNS (Rumah Sakit Universitas Sebelas Maret).
+- 18 menit ke Bandar Udara Internasional Adi Soemarmo.
+- 13 menit ke RS JIH Solo.
+- 14 menit ke Stadion Manahan.
+- 18 menit ke Masjid Raya Sheikh Zayed.
+- 18 menit ke Pura Mangkunegaran.
+
+1. https://www.facebook.com/photo/?fbid=840955568039536&set=gm.1574278476715279
+2. https://www.facebook.com/pages/Colomadu-Karanganyar/178677565661400
+3. https://www.facebook.com/events/1574278436715283/
+4. https://www.facebook.com/pages/Colomadusolo/485217231568825
+
+5. https://www.facebook.com/permalink.php?story_fbid=pfbid02hTCaMQHnDygC7h6zdqDL3RoSXDQxa1GWEhg6BWK1MHsigSM2eGb4QEeLXkgUVbeYl&id=100063753002741
+6. https://www.facebook.com/pages/Baturan-Indah-Colomadu/144622448973627
+7. https://www.facebook.com/photo/?fbid=840914478043645&set=a.605970084871420
+8. https://www.facebook.com/stories/100664832068617/UzpfSVNDOjcwMDQ0OTgxODY4NDQzOQ==/?bucket_count=9&source=story_tray
+
+<hr/>
