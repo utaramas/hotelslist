@@ -511,9 +511,21 @@ Well, salah satu teman fb update status berisi informasi kelas tahsin dewasa pri
 
 <hr/>
 
-### Bahasa Arab & Tahsin Saling Berkaitan
+### Hotel Near Pantai Hospital Ayer Keroh - 190 M dari Pantai Hospital
 
-Agar tidak salah makna dalam percakapan bahasa Arab maka bunyi huruf harus benar, untuk itu perlu belajar bunyi huruf.
+Hotel Near Pantai Hospital Ayer Keroh - 190 M dari Pantai Hospital.
+
+Sun Inns Hotel Ayer Keroh, Malacca, Malaysia.
+
+https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=1122663
+
+#SunInnsHotel #PHAK #PantaiHospitalAyerKeroh #PantaiStrongerTogether
+
+16. https://www.facebook.com/photo/?fbid=946295633873709&set=gm.304678055867450
+17. https://www.facebook.com/events/304678012534121/
+21. https://www.facebook.com/191590927540670/
+22. https://www.facebook.com/pages/Secret%20Recipe%20Jusco%20Ayer%20Keroh/191590927540670
+23. https://www.facebook.com/stories/152688639901083/UzpfSVNDOjg5NTYyNjA3ODkwMDYwNw==?view_single=false
 
 <hr/>
 
