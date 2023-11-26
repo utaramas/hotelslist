@@ -505,9 +505,13 @@ Well, salah satu teman bikin status wa berisi belajar bahasa arab gratis, memaka
 
 <hr/>
 
-### Kelas Tahsin Dewasa Pria
+### Hotel near Pusat Perubatan Universiti Malaya - 680 M dari UMMC
 
-Well, salah satu teman fb update status berisi informasi kelas tahsin dewasa pria mulai bulan oktober 2023.
+https://www.facebook.com/permalink.php?story_fbid=pfbid0ME4qAoTzx7erBt5bsUqRgY5QWn5ZSWdZ4AWaNP7vifgcWvH4b3RNh8iHDw8UugmMl&id=100054798426407
+
+https://www.facebook.com/photo?fbid=946275130542426&set=a.609588100877799
+
+https://www.facebook.com/pages/Maestro-Swiss-Trading-Sdn-Bhd/898630777151977
 
 <hr/>
 
