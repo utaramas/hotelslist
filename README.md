@@ -493,9 +493,30 @@ Wa :
 
 <hr/>
 
-### Tertarik Dengan Negara Polandia
+### DISKAUN HINGGA 80%!!, Hotel di Kodiang Kedah - 3 minit ke Gua Kerbau
 
-Well, infonya biaya hidup di Polandia merupakan yang terkecil biaya hidup se-eropa, jadi tertarik banget belajar mengenai Polandia lebih banyak.
+DISKAUN HINGGA 80%!!, Hotel di Kodiang Kedah - 3 minit ke Gua Kerbau.
+*
+*
+*
+Hotel di Kodiang, Hotel di Kodiang Kedah, Hotel in Kodiang, Homestay di Kodiang, Homestay di Kodiang Kedah, Homestay Area Kodiang, Hotel Berdekatan Kodiang.
+
+SMZ Café & Homestay, Jalan Guar Khor, Kampung Tokong, Kodiang, Kedah, Malaysia.
+
+https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=33033933
+
+Nota:
+Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel / Penginapan, Lebih baik jika anda menempah Hotel Hotel atau Tempahan Hotel Online terlebih dahulu sebelum berlepas. Sebelum bilik penuh di Tempah oleh Orang Lain.
+
+#HoteldiKodiang #HoteldiKodiangKedah #HotelinKodiang #HomestaydiKodiang #HomestaydiKodiangKedah #HomestayAreaKodiang #HotelBerdekatanKodiang
+
+https://www.facebook.com/photo/?fbid=946735847163021&set=gm.849712086629719
+https://www.facebook.com/events/849712046629723/
+https://www.facebook.com/pages/Kampung-Megat-Dewakodiang-Kedah/266511333841101
+https://m.facebook.com/photo/?fbid=946735847163021&set=gm.849712086629719
+https://m.facebook.com/events/849712046629723/
+https://m.facebook.com/pages/Kampung-Megat-Dewakodiang-Kedah/266511333841101
+https://m.facebook.com/profile.php?id=266511333841101
 
 <hr/>
 
