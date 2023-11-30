@@ -571,3 +571,17 @@ https://www.facebook.com/pages/Gedung-Induk-Siti-Walidah/307273109648838
 8. https://www.facebook.com/stories/100664832068617/UzpfSVNDOjcwMDQ0OTgxODY4NDQzOQ==/?bucket_count=9&source=story_tray
 
 <hr/>
+
+### DISKAUN HINGGA 80%!!, Hotel Near I-City Shah Alam
+
+DISKAUN HINGGA 80%!!, Hotel Near I-City Shah Alam
+
+https://m.facebook.com/profile.php?id=1031372543709880
+https://m.facebook.com/events/310016941993403
+https://m.facebook.com/events/310016941993403
+https://m.facebook.com/photo.php?fbid=950115573491715&id=100054798426407&set=gm.310016991993398
+https://www.facebook.com/photo/?fbid=950115573491715&set=gm.310016991993398
+https://www.facebook.com/events/310016941993403/
+https://www.facebook.com/pages/iSovo-i-city/1031372543709880
+
+<hr/>
