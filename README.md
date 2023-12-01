@@ -598,3 +598,14 @@ https://www.facebook.com/permalink.php?story_fbid=pfbid0xGaRR87nWpqksi8zN6FZwGTL
 https://www.facebook.com/pages/Petronas-Twin-Towers-Kuala-Lumpur-Malaysia/199297673444728
 
 <hr/>
+
+### Senarai Hotel Penginapan Murah di Sitiawan Perak
+
+Senarai Hotel Penginapan Murah di Sitiawan Perak
+
+https://www.facebook.com/photo/?fbid=1074658896455773&set=a.1074659449789051
+https://www.facebook.com/media/set/?set=a.1074659449789051&type=3
+https://www.facebook.com/pages/Kampong-Sungai-Sitiawan-Perak-Malaysia/107163132648530
+https://m.facebook.com/profile.php?id=107163132648530
+
+<hr/>
