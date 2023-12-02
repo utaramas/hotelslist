@@ -609,3 +609,15 @@ https://www.facebook.com/pages/Kampong-Sungai-Sitiawan-Perak-Malaysia/1071631326
 https://m.facebook.com/profile.php?id=107163132648530
 
 <hr/>
+
+### Senarai Hotel Murah di Lumut, Senarai Hotel Bajet di Lumut Perak
+
+Senarai Hotel Murah di Lumut, Senarai Hotel Bajet di Lumut Perak
+
+https://www.facebook.com/media/set/?set=a.1084961445425518&type=3
+https://www.facebook.com/photo/?fbid=1084960678758928&set=a.1084961445425518
+
+<hr/>
+
+
+
