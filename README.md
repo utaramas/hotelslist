@@ -670,5 +670,18 @@ https://www.facebook.com/pages/Kampung-Pantai-Baru-Bachok-Kelantan/2611009539083
 
 <hr/>
 
+### DISKAUN HINGGA 80%!!, Hotel Murah Di Cameron Highland Bawah RM100
+
+DISKAUN HINGGA 80%!!, Hotel Murah Di Cameron Highland Bawah RM100
+
+https://m.facebook.com/profile.php?id=182462278983135
+https://m.facebook.com/events/3441456679498783
+https://www.facebook.com/photo.php?fbid=947525170417422&id=100054798426407&set=gm.3441456736165444
+https://www.facebook.com/photo/?fbid=947525170417422&set=gm.3441456736165444
+https://www.facebook.com/events/3441456679498783
+https://www.facebook.com/pages/Brinchang-Cameron-Highland/182462278983135
+
+<hr/>
+
 
 
