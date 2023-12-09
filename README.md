@@ -683,5 +683,19 @@ https://www.facebook.com/pages/Brinchang-Cameron-Highland/182462278983135
 
 <hr/>
 
+### Hotel di Tengah Hutan Bali, Hotel Nuansa Alam di Bali
+
+Hotel di Tengah Hutan Bali, Hotel Nuansa Alam di Bali
+
+https://m.facebook.com/profile.php?id=1471363502931249
+https://m.facebook.com/events/877439150670531?refid=17
+https://www.facebook.com/photo.php?fbid=843198217815271&id=100063753002741&set=gm.877439210670525
+https://www.facebook.com/people/Marzuki-id/100063753002741/
+https://m.facebook.com/profile.php?id=100063753002741
+https://www.facebook.com/events/877439150670531/
+https://www.facebook.com/pages/Desa-Keliki-Tegallalang-Gianyar/1471363502931249
+
+<hr/>
+
 
 
