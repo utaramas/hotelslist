@@ -697,5 +697,21 @@ https://www.facebook.com/pages/Desa-Keliki-Tegallalang-Gianyar/1471363502931249
 
 <hr/>
 
+### Hotel terbaik di Amed Bali. 10 menit berkendara ke Pantai Amed
+
+Hotel terbaik di Amed Bali. 10 menit berkendara ke Pantai Amed
+
+https://m.facebook.com/profile.php?id=670849246263949
+https://m.facebook.com/events/1023039272189051
+https://m.facebook.com/photo.php?fbid=843447144457045&id=100063753002741&set=gm.1023039308855714
+https://m.facebook.com/photo.php?fbid=605969694871459&id=100063753002741&set=a.605970084871420
+https://www.facebook.com/pages/Amed-Beach-Bali/670849246263949
+https://www.facebook.com/events/1023039272189051
+https://www.facebook.com/photo/?fbid=843447144457045&set=gm.1023039308855714
+https://www.facebook.com/permalink.php?story_fbid=pfbid02dAy6QuyZEqovQuvGdpJyPPFx9QLVLukWuj9dEW3w5kJfZS6EmjjHyGFZPQ4r7JTol&id=100063753002741
+https://www.facebook.com/photo/?fbid=605969694871459&set=a.605970084871420
+
+<hr/>
+
 
 
