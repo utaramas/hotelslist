@@ -729,5 +729,16 @@ https://www.facebook.com/photo/?fbid=843497594452000&set=gm.1015256009705563
 
 <hr/>
 
+### Hotel berdekatan A Famosa Melaka - 3 minit ke A Famosa
 
+Hotel berdekatan A Famosa Melaka - 3 minit ke A Famosa
+
+https://m.facebook.com/profile.php?id=315195175767607
+https://m.facebook.com/events/750125290493060
+https://www.facebook.com/photo.php?fbid=948296580340281&id=100054798426407&set=gm.750125337159722
+https://www.facebook.com/events/750125290493060/
+https://www.facebook.com/pages/Melaka-River-Cruise-Sungei-Melaka/315195175767607
+https://www.facebook.com/photo/?fbid=948296580340281&set=gm.750125337159722
+
+<hr/>
 
