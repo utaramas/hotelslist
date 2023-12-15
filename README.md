@@ -816,3 +816,16 @@ https://www.facebook.com/pages/Cameron-Pasar-Malam-Golden-Hill/243946726374419
 https://www.facebook.com/events/1567457587405227/
 
 <hr/>
+
+### Discount Up To 80%!!, Ladies Hostel Near Bandra Kurla Complex
+
+Discount Up To 80%!!, Ladies Hostel Near Bandra Kurla Complex
+
+https://m.facebook.com/profile.php?id=178129435573636
+https://www.facebook.com/pages/Bandra-Kurla-Complex-BKC/178129435573636
+https://www.facebook.com/events/2818770454927278
+https://www.facebook.com/photo?fbid=767352702075449&set=gm.2818770518260605
+https://m.facebook.com/photo.php?fbid=767352702075449&id=100064021782855&set=gm.2818770518260605
+https://m.facebook.com/events/2818770454927278
+
+<hr/>
