@@ -829,3 +829,16 @@ https://m.facebook.com/photo.php?fbid=767352702075449&id=100064021782855&set=gm.
 https://m.facebook.com/events/2818770454927278
 
 <hr/>
+
+### DISKAUN HINGGA 80%!!, Homestay Port Dickson Tepi Pantai
+
+DISKAUN HINGGA 80%!!, Homestay Port Dickson Tepi Pantai
+
+https://www.facebook.com/events/1190561382348581
+https://www.facebook.com/photo/?fbid=952114419958497&set=gm.1190561445681908
+https://m.facebook.com/profile.php?id=207640535975951
+https://www.facebook.com/pages/Kampung-Baru-Sirusa-Port-Dickson/207640535975951
+https://m.facebook.com/events/1190561382348581
+https://m.facebook.com/photo.php?fbid=952114419958497&id=100054798426407&set=gm.1190561445681908
+
+<hr/>
