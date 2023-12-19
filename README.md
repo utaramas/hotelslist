@@ -842,3 +842,18 @@ https://m.facebook.com/events/1190561382348581
 https://m.facebook.com/photo.php?fbid=952114419958497&id=100054798426407&set=gm.1190561445681908
 
 <hr/>
+
+### DISKAUN HINGGA 80%!!, Homestay Kampung Baru Kuala Lumpur
+
+DISKAUN HINGGA 80%!!, Homestay Kampung Baru Kuala Lumpur.
+
+Homestay kampung baru kuala lumpur, homestay kg baru kuala lumpur, homestay di kampung baru kuala lumpur, homestay di kg baru kuala lumpur, homestay murah di kg baru kuala lumpur, homestay apartment kg baru kuala lumpur.
+
+https://m.facebook.com/profile.php?id=169904180020170
+https://m.facebook.com/events/317603881223972
+https://m.facebook.com/photo.php?fbid=951558763347396&id=100054798426407&set=gm.317603944557299
+https://www.facebook.com/events/317603881223972/
+https://www.facebook.com/photo/?fbid=951558763347396&set=gm.317603944557299
+https://www.facebook.com/pages/Legasi-Kampung-baru/169904180020170
+
+<hr/>
