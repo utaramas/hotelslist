@@ -449,9 +449,7 @@ https://m.facebook.com/profile.php?id=898630777151977
 ### DISKAUN HINGGA 80%!!, Hotel di Kodiang Kedah - 3 minit ke Gua Kerbau
 
 DISKAUN HINGGA 80%!!, Hotel di Kodiang Kedah - 3 minit ke Gua Kerbau.
-*
-*
-*
+
 Hotel di Kodiang, Hotel di Kodiang Kedah, Hotel in Kodiang, Homestay di Kodiang, Homestay di Kodiang Kedah, Homestay Area Kodiang, Hotel Berdekatan Kodiang.
 
 SMZ Café & Homestay, Jalan Guar Khor, Kampung Tokong, Kodiang, Kedah, Malaysia.
