@@ -868,3 +868,15 @@ https://m.facebook.com/events/1190561382348581
 https://m.facebook.com/photo.php?fbid=952114419958497&id=100054798426407&set=gm.1190561445681908
 
 <hr/>
+
+### Hotel berdekatan melaka wonderland, hotel di melaka wonderland, hotel near melaka wonderland
+
+Hotel berdekatan melaka wonderland, hotel di melaka wonderland, hotel near melaka wonderland.
+
+https://m.facebook.com/events/1015966466301845
+https://m.facebook.com/photo.php?fbid=953245343178738&id=100054798426407&set=gm.1015966546301837
+https://m.facebook.com/profile.php?id=186481471370386
+https://www.facebook.com/events/1015966466301845
+https://www.facebook.com/photo/?fbid=953245343178738&set=gm.1015966546301837
+
+<hr/>
