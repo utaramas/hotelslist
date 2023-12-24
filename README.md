@@ -893,3 +893,16 @@ https://www.facebook.com/photo/?fbid=953408183162454&set=gm.352309844067584
 https://www.facebook.com/pages/Janda-Baik-Bentong/242303612494001
 
 <hr/>
+
+### Melaka hotel near Jonker Street
+
+5 minit dari Jonker Street Night Market. Melaka hotel near Jonker Street.
+
+https://m.facebook.com/profile.php?id=210749782270565
+https://m.facebook.com/events/392269736475973
+https://m.facebook.com/photo.php?fbid=954157759754163&id=100054798426407&set=gm.392269803142633
+https://www.facebook.com/pages/Lorong-Hang-Jebat/210749782270565
+https://www.facebook.com/photo/?fbid=954157759754163&set=gm.392269803142633
+https://www.facebook.com/events/392269736475973/
+
+<hr/>
