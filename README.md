@@ -906,3 +906,15 @@ https://www.facebook.com/photo/?fbid=954157759754163&set=gm.392269803142633
 https://www.facebook.com/events/392269736475973/
 
 <hr/>
+
+### DISKAUN HINGGA 80%!!, hotel berdekatan klia2, hotel near klia 2, hotel berdekatan dengan klia 2
+
+DISKAUN HINGGA 80%!!, hotel berdekatan klia2, hotel near klia 2, hotel berdekatan dengan klia 2.
+
+https://www.facebook.com/permalink.php?story_fbid=pfbid023WBraJWrpGaryjku4Bvdu8RdQufo2veSqQdgk96LqckEDtbEL8MkUq6bWAJ51yUMl&id=375349103053426
+https://www.facebook.com/375349103053426/photos/a.786013468653652/1409868459601480
+https://m.facebook.com/375349103053426/photos/a.786013468653652/1409868459601480
+https://m.facebook.com/permalink.php?story_fbid=pfbid023WBraJWrpGaryjku4Bvdu8RdQufo2veSqQdgk96LqckEDtbEL8MkUq6bWAJ51yUMl&id=375349103053426
+
+<hr/>
+
