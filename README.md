@@ -953,3 +953,11 @@ https://www.canva.com/design/DAEsBk77ujQ/2LVXFuL-irnM32FLSjVkhQ/edit
 
 <hr/>
 
+### Tips percutian bajet ke Krabi Thailand
+
+Tips percutian bajet ke Krabi Thailand.
+
+https://www.canva.com/design/DAF5e-hybfE/fKe1Ou85XyRUnjlsP9iqug/view?utm_content=DAF5e-hybfE&utm_campaign=designshare&utm_medium=link&utm_source=editor
+
+<hr/>
+
