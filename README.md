@@ -556,14 +556,14 @@ Sun Inns Hotel Ayer Keroh, Malacca, Malaysia.
 - 18 menit ke Masjid Raya Sheikh Zayed.
 - 18 menit ke Pura Mangkunegaran.
 
-1. https://www.facebook.com/photo/?fbid=840955568039536&set=gm.1574278476715279
-2. https://www.facebook.com/pages/Colomadu-Karanganyar/178677565661400
-3. https://www.facebook.com/events/1574278436715283/
-4. https://www.facebook.com/pages/Colomadusolo/485217231568825
+1. [https://www.facebook.com/photo/?fbid=840955568039536&set=gm.1574278476715279](https://www.facebook.com/photo/?fbid=840955568039536&set=gm.1574278476715279)
+2. [https://www.facebook.com/pages/Colomadu-Karanganyar/178677565661400](https://www.facebook.com/pages/Colomadu-Karanganyar/178677565661400)
+3. [https://www.facebook.com/events/1574278436715283](https://www.facebook.com/events/1574278436715283)
+4. [https://www.facebook.com/pages/Colomadusolo/485217231568825](https://www.facebook.com/pages/Colomadusolo/485217231568825)
 
-5. https://www.facebook.com/permalink.php?story_fbid=pfbid02hTCaMQHnDygC7h6zdqDL3RoSXDQxa1GWEhg6BWK1MHsigSM2eGb4QEeLXkgUVbeYl&id=100063753002741
-6. https://www.facebook.com/pages/Baturan-Indah-Colomadu/144622448973627
-7. https://www.facebook.com/photo/?fbid=840914478043645&set=a.605970084871420
+5. [https://www.facebook.com/permalink.php?story_fbid=pfbid02hTCaMQHnDygC7h6zdqDL3RoSXDQxa1GWEhg6BWK1MHsigSM2eGb4QEeLXkgUVbeYl&id=100063753002741](https://www.facebook.com/permalink.php?story_fbid=pfbid02hTCaMQHnDygC7h6zdqDL3RoSXDQxa1GWEhg6BWK1MHsigSM2eGb4QEeLXkgUVbeYl&id=100063753002741)
+6. [https://www.facebook.com/pages/Baturan-Indah-Colomadu/144622448973627](https://www.facebook.com/pages/Baturan-Indah-Colomadu/144622448973627)
+7. [https://www.facebook.com/photo/?fbid=840914478043645&set=a.605970084871420](https://www.facebook.com/photo/?fbid=840914478043645&set=a.605970084871420)
 8. https://www.facebook.com/stories/100664832068617/UzpfSVNDOjcwMDQ0OTgxODY4NDQzOQ==/?bucket_count=9&source=story_tray
 
 <hr/>
