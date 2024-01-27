@@ -586,12 +586,12 @@ DISKAUN HINGGA 80%!!, Hotel Near I-City Shah Alam
 
 12 Hotel Kuala Lumpur View Petronas Towers
 
-https://www.facebook.com/media/set/?vanity=375349103053426&set=a.1092443151344014
-https://www.facebook.com/media/set/?set=a.1092443151344014&type=3
-https://www.facebook.com/photo/?fbid=1092442318010764&set=a.1092443151344014
-https://m.facebook.com/profile.php?id=199297673444728
-https://www.facebook.com/permalink.php?story_fbid=pfbid0xGaRR87nWpqksi8zN6FZwGTLpA2VWTDtx4K2CVATQDVDi62WsFBGHp92w2kfrnPTl&id=375349103053426
-https://www.facebook.com/pages/Petronas-Twin-Towers-Kuala-Lumpur-Malaysia/199297673444728
+[https://www.facebook.com/media/set/?vanity=375349103053426&set=a.1092443151344014](https://www.facebook.com/media/set/?vanity=375349103053426&set=a.1092443151344014)
+[https://www.facebook.com/media/set/?set=a.1092443151344014&type=3](https://www.facebook.com/media/set/?set=a.1092443151344014&type=3)
+[https://www.facebook.com/photo/?fbid=1092442318010764&set=a.1092443151344014](https://www.facebook.com/photo/?fbid=1092442318010764&set=a.1092443151344014)
+https://m.facebook.com/profile.php?id=199297673444728()
+[https://www.facebook.com/permalink.php?story_fbid=pfbid0xGaRR87nWpqksi8zN6FZwGTLpA2VWTDtx4K2CVATQDVDi62WsFBGHp92w2kfrnPTl&id=375349103053426](https://www.facebook.com/permalink.php?story_fbid=pfbid0xGaRR87nWpqksi8zN6FZwGTLpA2VWTDtx4K2CVATQDVDi62WsFBGHp92w2kfrnPTl&id=375349103053426)
+[https://www.facebook.com/pages/Petronas-Twin-Towers-Kuala-Lumpur-Malaysia/199297673444728](https://www.facebook.com/pages/Petronas-Twin-Towers-Kuala-Lumpur-Malaysia/199297673444728)
 
 <hr/>
 
