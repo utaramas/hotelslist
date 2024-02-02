@@ -610,8 +610,8 @@ Senarai Hotel Penginapan Murah di Sitiawan Perak
 
 Senarai Hotel Murah di Lumut, Senarai Hotel Bajet di Lumut Perak
 
-https://www.facebook.com/media/set/?set=a.1084961445425518&type=3
-https://www.facebook.com/photo/?fbid=1084960678758928&set=a.1084961445425518
+[https://www.facebook.com/media/set/?set=a.1084961445425518&type=3](https://www.facebook.com/media/set/?set=a.1084961445425518&type=3)
+[https://www.facebook.com/photo/?fbid=1084960678758928&set=a.1084961445425518](https://www.facebook.com/photo/?fbid=1084960678758928&set=a.1084961445425518)
 
 <hr/>
 
