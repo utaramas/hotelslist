@@ -619,12 +619,12 @@ Senarai Hotel Murah di Lumut, Senarai Hotel Bajet di Lumut Perak
 
 Hotel Murah di Teluk Intan - Hotel Budget di Teluk Intan
 
-https://www.facebook.com/media/set/?set=a.1085794265342236&type=3
-https://www.facebook.com/photo/?fbid=1085792638675732&set=a.1085794265342236
-https://m.facebook.com/profile.php?id=142526416375271
-https://m.facebook.com/375349103053426/albums/1085794265342236/
-https://m.facebook.com/story.php?story_fbid=pfbid0wFbxhgZVCKdFeNKdKVid9hJ18TEW1jZYkDucGioNCnimT613QUnLke5agKyUjP84l&id=375349103053426
-https://m.facebook.com/375349103053426/photos/a.1085794265342236/1085792638675732/
+[https://www.facebook.com/media/set/?set=a.1085794265342236&type=3](https://www.facebook.com/media/set/?set=a.1085794265342236&type=3)
+[https://www.facebook.com/photo/?fbid=1085792638675732&set=a.1085794265342236](https://www.facebook.com/photo/?fbid=1085792638675732&set=a.1085794265342236)
+[https://m.facebook.com/profile.php?id=142526416375271](https://m.facebook.com/profile.php?id=142526416375271)
+[https://m.facebook.com/375349103053426/albums/1085794265342236](https://m.facebook.com/375349103053426/albums/1085794265342236)
+[https://m.facebook.com/story.php?story_fbid=pfbid0wFbxhgZVCKdFeNKdKVid9hJ18TEW1jZYkDucGioNCnimT613QUnLke5agKyUjP84l&id=375349103053426](https://m.facebook.com/story.php?story_fbid=pfbid0wFbxhgZVCKdFeNKdKVid9hJ18TEW1jZYkDucGioNCnimT613QUnLke5agKyUjP84l&id=375349103053426)
+[https://m.facebook.com/375349103053426/photos/a.1085794265342236/1085792638675732](https://m.facebook.com/375349103053426/photos/a.1085794265342236/1085792638675732)
 
 <hr/>
 
