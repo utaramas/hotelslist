@@ -632,13 +632,13 @@ Hotel Murah di Teluk Intan - Hotel Budget di Teluk Intan
 
 Senarai Hotel Murah Di Gopeng - Hotel Bajet di Gopeng Perak
 
-https://m.facebook.com/profile.php?id=966375743508866(https://m.facebook.com/profile.php?id=966375743508866)
-https://m.facebook.com/375349103053426/albums/1090529671535362(https://m.facebook.com/375349103053426/albums/1090529671535362)
-https://m.facebook.com/story.php?story_fbid=pfbid0sm252yAeunuvAzXMUdJ5ZfZ6m98D9W2z1adc1Yru1NuhoRWpf6jT1EwWbkWHto27l&id=375349103053426(https://m.facebook.com/story.php?story_fbid=pfbid0sm252yAeunuvAzXMUdJ5ZfZ6m98D9W2z1adc1Yru1NuhoRWpf6jT1EwWbkWHto27l&id=375349103053426)
-https://m.facebook.com/375349103053426/photos/a.1090529671535362/1090526041535725(https://m.facebook.com/375349103053426/photos/a.1090529671535362/1090526041535725)
-https://www.facebook.com/media/set/?vanity=375349103053426&set=a.1090529671535362(https://www.facebook.com/media/set/?vanity=375349103053426&set=a.1090529671535362)
-https://www.facebook.com/photo/?fbid=1090526041535725&set=a.1090529671535362(https://www.facebook.com/photo/?fbid=1090526041535725&set=a.1090529671535362)
-https://www.facebook.com/permalink.php?story_fbid=pfbid0sm252yAeunuvAzXMUdJ5ZfZ6m98D9W2z1adc1Yru1NuhoRWpf6jT1EwWbkWHto27l&id=375349103053426(https://www.facebook.com/permalink.php?story_fbid=pfbid0sm252yAeunuvAzXMUdJ5ZfZ6m98D9W2z1adc1Yru1NuhoRWpf6jT1EwWbkWHto27l&id=375349103053426)
+[https://m.facebook.com/profile.php?id=966375743508866](https://m.facebook.com/profile.php?id=966375743508866)
+[https://m.facebook.com/375349103053426/albums/1090529671535362](https://m.facebook.com/375349103053426/albums/1090529671535362)
+[https://m.facebook.com/story.php?story_fbid=pfbid0sm252yAeunuvAzXMUdJ5ZfZ6m98D9W2z1adc1Yru1NuhoRWpf6jT1EwWbkWHto27l&id=375349103053426](https://m.facebook.com/story.php?story_fbid=pfbid0sm252yAeunuvAzXMUdJ5ZfZ6m98D9W2z1adc1Yru1NuhoRWpf6jT1EwWbkWHto27l&id=375349103053426)
+[https://m.facebook.com/375349103053426/photos/a.1090529671535362/1090526041535725](https://m.facebook.com/375349103053426/photos/a.1090529671535362/1090526041535725)
+[https://www.facebook.com/media/set/?vanity=375349103053426&set=a.1090529671535362](https://www.facebook.com/media/set/?vanity=375349103053426&set=a.1090529671535362)
+[https://www.facebook.com/photo/?fbid=1090526041535725&set=a.1090529671535362](https://www.facebook.com/photo/?fbid=1090526041535725&set=a.1090529671535362)
+[https://www.facebook.com/permalink.php?story_fbid=pfbid0sm252yAeunuvAzXMUdJ5ZfZ6m98D9W2z1adc1Yru1NuhoRWpf6jT1EwWbkWHto27l&id=375349103053426](https://www.facebook.com/permalink.php?story_fbid=pfbid0sm252yAeunuvAzXMUdJ5ZfZ6m98D9W2z1adc1Yru1NuhoRWpf6jT1EwWbkWHto27l&id=375349103053426)
 
 <hr/>
 
