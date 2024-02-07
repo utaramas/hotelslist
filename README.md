@@ -656,13 +656,13 @@ Senarai Hotel Penginapan Murah di Batu Gajah Perak
 
 Homestay berdekatan umk bachok, hotel berdekatan umk bachok, homestay near umk bachok, hotel near umk bachok
 
-https://m.facebook.com/profile.php?id=261100953908308
-https://m.facebook.com/events/380696460977212
-https://m.facebook.com/photo.php?fbid=947454963757776&id=100054798426407&set=gm.380696500977208&source=48
-https://m.facebook.com/profile.php?id=100054798426407
-https://www.facebook.com/events/380696460977212/
-https://www.facebook.com/photo/?fbid=947454963757776&set=gm.380696500977208
-https://www.facebook.com/pages/Kampung-Pantai-Baru-Bachok-Kelantan/261100953908308
+[https://m.facebook.com/profile.php?id=261100953908308](https://m.facebook.com/profile.php?id=261100953908308)
+[https://m.facebook.com/events/380696460977212](https://m.facebook.com/events/380696460977212)
+[https://m.facebook.com/photo.php?fbid=947454963757776&id=100054798426407&set=gm.380696500977208&source=48](https://m.facebook.com/photo.php?fbid=947454963757776&id=100054798426407&set=gm.380696500977208&source=48)
+[https://m.facebook.com/profile.php?id=100054798426407](https://m.facebook.com/profile.php?id=100054798426407)
+[https://www.facebook.com/events/380696460977212](https://www.facebook.com/events/380696460977212)
+[https://www.facebook.com/photo/?fbid=947454963757776&set=gm.380696500977208](https://www.facebook.com/photo/?fbid=947454963757776&set=gm.380696500977208)
+[https://www.facebook.com/pages/Kampung-Pantai-Baru-Bachok-Kelantan/261100953908308](https://www.facebook.com/pages/Kampung-Pantai-Baru-Bachok-Kelantan/261100953908308)
 
 <hr/>
 
