@@ -646,9 +646,9 @@ Senarai Hotel Murah Di Gopeng - Hotel Bajet di Gopeng Perak
 
 Senarai Hotel Penginapan Murah di Batu Gajah Perak
 
-https://m.facebook.com/profile.php?id=280330932449428
-https://m.facebook.com/375349103053426/photos/a.1070257996895863/1070257300229266/
-https://m.facebook.com/story.php?story_fbid=pfbid07uxD3eQgtqVeA9ZpyaFTpXG3RrhrURULpk5YfKndUYMZEsSYPMhQwF13jEfskVDLl&id=375349103053426
+[https://m.facebook.com/profile.php?id=280330932449428](https://m.facebook.com/profile.php?id=280330932449428)
+[https://m.facebook.com/375349103053426/photos/a.1070257996895863/1070257300229266](https://m.facebook.com/375349103053426/photos/a.1070257996895863/1070257300229266)
+[https://m.facebook.com/story.php?story_fbid=pfbid07uxD3eQgtqVeA9ZpyaFTpXG3RrhrURULpk5YfKndUYMZEsSYPMhQwF13jEfskVDLl&id=375349103053426](https://m.facebook.com/story.php?story_fbid=pfbid07uxD3eQgtqVeA9ZpyaFTpXG3RrhrURULpk5YfKndUYMZEsSYPMhQwF13jEfskVDLl&id=375349103053426)
 
 <hr/>
 
