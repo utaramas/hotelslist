@@ -947,7 +947,7 @@ https://m.facebook.com/photo.php?fbid=757017495453739&id=100034364853725&set=a.7
 
 Hotel Ramah Anak Di Bogor Kota - Hotel Syariah Di Bogor - Hotel Sahira Syariah Bogor - Sahira Butik Hotel Pakuan.
 
-https://www.canva.com/design/DAEsBk77ujQ/2LVXFuL-irnM32FLSjVkhQ/edit
+[https://www.canva.com/design/DAEsBk77ujQ/2LVXFuL-irnM32FLSjVkhQ/edit](https://www.canva.com/design/DAEsBk77ujQ/2LVXFuL-irnM32FLSjVkhQ/edit)
 
 <hr/>
 
