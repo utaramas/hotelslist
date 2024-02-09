@@ -963,6 +963,6 @@ https://www.canva.com/design/DAF5e-hybfE/fKe1Ou85XyRUnjlsP9iqug/view?utm_content
 
 DISKAUN HINGGA 80%!!!, Hotel Bajet Berdekatan Hospital Kuala Terengganu.
 
-https://www.canva.com/design/DAF5ku6lve8/CQnCfAKzLC7BjiHhJVVugQ/view?utm_content=DAF5ku6lve8&utm_campaign=designshare&utm_medium=link&utm_source=editor
+[https://www.canva.com/design/DAF5ku6lve8/CQnCfAKzLC7BjiHhJVVugQ/view?utm_content=DAF5ku6lve8&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAF5ku6lve8/CQnCfAKzLC7BjiHhJVVugQ/view?utm_content=DAF5ku6lve8&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 <hr/>
