@@ -935,11 +935,11 @@ https://m.facebook.com/permalink.php?story_fbid=pfbid02ynAmvCkV4vucdeNbM3zvCpLQ8
 
 REKOMENDASI!!! Tempat Bulan Madu Romantis di Bali - Honeymoon.
 
-https://www.facebook.com/photo/?fbid=757017495453739&set=a.757027998786022
-https://www.facebook.com/media/set/?vanity=dewi.rani.98096&set=a.757027998786022
-https://www.facebook.com/media/set/?set=a.1470540940072855&type=3
-https://m.facebook.com/624396944687263/photos/a.1470540940072855/1470539520072997/
-https://m.facebook.com/photo.php?fbid=757017495453739&id=100034364853725&set=a.757027998786022
+[https://www.facebook.com/photo/?fbid=757017495453739&set=a.757027998786022](https://www.facebook.com/photo/?fbid=757017495453739&set=a.757027998786022)
+[https://www.facebook.com/media/set/?vanity=dewi.rani.98096&set=a.757027998786022](https://www.facebook.com/media/set/?vanity=dewi.rani.98096&set=a.757027998786022)
+[https://www.facebook.com/media/set/?set=a.1470540940072855&type=3](https://www.facebook.com/media/set/?set=a.1470540940072855&type=3)
+[https://m.facebook.com/624396944687263/photos/a.1470540940072855/1470539520072997](https://m.facebook.com/624396944687263/photos/a.1470540940072855/1470539520072997)
+[https://m.facebook.com/photo.php?fbid=757017495453739&id=100034364853725&set=a.757027998786022](https://m.facebook.com/photo.php?fbid=757017495453739&id=100034364853725&set=a.757027998786022)
 
 <hr/>
 
