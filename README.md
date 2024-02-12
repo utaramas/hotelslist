@@ -955,7 +955,7 @@ Hotel Ramah Anak Di Bogor Kota - Hotel Syariah Di Bogor - Hotel Sahira Syariah B
 
 Tips percutian bajet ke Krabi Thailand.
 
-https://www.canva.com/design/DAF5e-hybfE/fKe1Ou85XyRUnjlsP9iqug/view?utm_content=DAF5e-hybfE&utm_campaign=designshare&utm_medium=link&utm_source=editor
+[https://www.canva.com/design/DAF5e-hybfE/fKe1Ou85XyRUnjlsP9iqug/view?utm_content=DAF5e-hybfE&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAF5e-hybfE/fKe1Ou85XyRUnjlsP9iqug/view?utm_content=DAF5e-hybfE&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 <hr/>
 
