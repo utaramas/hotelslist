@@ -926,8 +926,8 @@ https://www.facebook.com/photo?fbid=955442769625662&set=a.955444506292155
 
 DISKAUN HINGGA 80%!!, Hotel murah di Cameron Highland berdekatan pasar malam tanah rata cameron highland.
 
-https://www.facebook.com/permalink.php?story_fbid=pfbid02ynAmvCkV4vucdeNbM3zvCpLQ8aSA4MnL4P1nqwps5pfkS8D8jmndGBkz4J9rxKBpl&id=375349103053426
-https://m.facebook.com/permalink.php?story_fbid=pfbid02ynAmvCkV4vucdeNbM3zvCpLQ8aSA4MnL4P1nqwps5pfkS8D8jmndGBkz4J9rxKBpl&id=375349103053426
+https://www.facebook.com/permalink.php?story_fbid=pfbid02ynAmvCkV4vucdeNbM3zvCpLQ8aSA4MnL4P1nqwps5pfkS8D8jmndGBkz4J9rxKBpl&id=375349103053426(https://www.facebook.com/permalink.php?story_fbid=pfbid02ynAmvCkV4vucdeNbM3zvCpLQ8aSA4MnL4P1nqwps5pfkS8D8jmndGBkz4J9rxKBpl&id=375349103053426)
+https://m.facebook.com/permalink.php?story_fbid=pfbid02ynAmvCkV4vucdeNbM3zvCpLQ8aSA4MnL4P1nqwps5pfkS8D8jmndGBkz4J9rxKBpl&id=375349103053426(https://m.facebook.com/permalink.php?story_fbid=pfbid02ynAmvCkV4vucdeNbM3zvCpLQ8aSA4MnL4P1nqwps5pfkS8D8jmndGBkz4J9rxKBpl&id=375349103053426)
 
 <hr/>
 
