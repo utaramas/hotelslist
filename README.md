@@ -289,7 +289,7 @@ Harga semalam serendah RM40
 
 4. OYO 44088 Valley View Hotel, [https://bit.ly/3aoKBaj](https://bit.ly/3aoKBaj)
 2 Bintang
-No. 17, 18 &amp; 19, Taman Batik Puteri 1 Jalan Batik Puteri 1, Lumut, Lumut, Malaysia, 32200
+No. 17, 18 & 19, Taman Batik Puteri 1 Jalan Batik Puteri 1, Lumut, Lumut, Malaysia, 32200
 Harga semalam serendah RM45
 
 5. Lumut Suites, [https://bit.ly/3x977wP](https://bit.ly/3x977wP)
@@ -442,7 +442,7 @@ https://twitter.com/homestaynear
 
 [https://www.facebook.com/pages/Maestro-Swiss-Trading-Sdn-Bhd/898630777151977](https://www.facebook.com/pages/Maestro-Swiss-Trading-Sdn-Bhd/898630777151977)
 
-https://m.facebook.com/profile.php?id=898630777151977
+[https://m.facebook.com/profile.php?id=898630777151977](https://m.facebook.com/profile.php?id=898630777151977)
 
 <hr/>
 
@@ -670,12 +670,12 @@ Homestay berdekatan umk bachok, hotel berdekatan umk bachok, homestay near umk b
 
 DISKAUN HINGGA 80%!!, Hotel Murah Di Cameron Highland Bawah RM100
 
-https://m.facebook.com/profile.php?id=182462278983135
-https://m.facebook.com/events/3441456679498783
-https://www.facebook.com/photo.php?fbid=947525170417422&id=100054798426407&set=gm.3441456736165444
-https://www.facebook.com/photo/?fbid=947525170417422&set=gm.3441456736165444
-https://www.facebook.com/events/3441456679498783
-https://www.facebook.com/pages/Brinchang-Cameron-Highland/182462278983135
+[https://m.facebook.com/profile.php?id=182462278983135](https://m.facebook.com/profile.php?id=182462278983135)
+[https://m.facebook.com/events/3441456679498783](https://m.facebook.com/events/3441456679498783)
+[https://www.facebook.com/photo.php?fbid=947525170417422&id=100054798426407&set=gm.3441456736165444](https://www.facebook.com/photo.php?fbid=947525170417422&id=100054798426407&set=gm.3441456736165444)
+[https://www.facebook.com/photo/?fbid=947525170417422&set=gm.3441456736165444](https://www.facebook.com/photo/?fbid=947525170417422&set=gm.3441456736165444)
+[https://www.facebook.com/events/3441456679498783](https://www.facebook.com/events/3441456679498783)
+[https://www.facebook.com/pages/Brinchang-Cameron-Highland/182462278983135](https://www.facebook.com/pages/Brinchang-Cameron-Highland/182462278983135)
 
 <hr/>
 
