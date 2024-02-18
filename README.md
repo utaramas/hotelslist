@@ -273,26 +273,26 @@ Hotel di lumut perak Malaysia, hotel di lumut.
 
 Berikut Senarai Hotel Murah Di Lumut :
 
-1. Garden Inn Lumut, [https://bit.ly/3m4zaHl](https://bit.ly/3m4zaHl)
+1 Garden Inn Lumut, [https://bit.ly/3m4zaHl](https://bit.ly/3m4zaHl)
 2 Bintang
 No,3, Jalan Permata 5, Taman Bukit Permata, Lumut, Lumut, Malaysia, 32200
 Harga semalam serendah RM34
 
-2. Dindings Pantai Desair Apartment By DPD, [https://bit.ly/3z8hUJb](https://bit.ly/3z8hUJb)
+2 Dindings Pantai Desair Apartment By DPD, [https://bit.ly/3z8hUJb](https://bit.ly/3z8hUJb)
 Lumut Perak, Lumut, Lumut, Malaysia, 32200
 Harga semalam serendah RM40
 
-3. OYO 89328 SZ Hotel, [https://bit.ly/3zdamFc](https://bit.ly/3zdamFc)
+3 OYO 89328 SZ Hotel, [https://bit.ly/3zdamFc](https://bit.ly/3zdamFc)
 2 Bintang
 14 A, B and C, Jalan Permai Jaya, Lumut, Lumut, Malaysia, 32200
 Harga semalam serendah RM40
 
-4. OYO 44088 Valley View Hotel, [https://bit.ly/3aoKBaj](https://bit.ly/3aoKBaj)
+4 OYO 44088 Valley View Hotel, [https://bit.ly/3aoKBaj](https://bit.ly/3aoKBaj)
 2 Bintang
 No. 17, 18 & 19, Taman Batik Puteri 1 Jalan Batik Puteri 1, Lumut, Lumut, Malaysia, 32200
 Harga semalam serendah RM45
 
-5. Lumut Suites, [https://bit.ly/3x977wP](https://bit.ly/3x977wP)
+5 Lumut Suites, [https://bit.ly/3x977wP](https://bit.ly/3x977wP)
 PT4142-PT4144, PERSIARAN SULTAN YUSUF IZUDDIN SHAH, 32200 LUMUT, PERAK., Lumut, Lumut, Malaysia, 32200
 Harga semalam serendah RM46
 
