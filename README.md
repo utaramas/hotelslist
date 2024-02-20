@@ -337,24 +337,24 @@ Hotel di batu gajah, penginapan di batu gajah perak, hotel in batu gajah perak, 
 
 Berikut Senarai Hotel Murah Di Batu Gajah Perak :
 
-1. Royale Hotel [https://bit.ly/3sqLFRn](https://bit.ly/3sqLFRn)
+1 Royale Hotel [https://bit.ly/3sqLFRn](https://bit.ly/3sqLFRn)
 3 Bintang
 Lot 1125, jalan pejabat pos, Batu Gajah, Batu Gajah, Batu Gajah, Malaysia, 31000
 Harga semalam serendah RM 93
 
-2. Pine Boutique Hotel, [https://bit.ly/3kTsXO7](https://bit.ly/3kTsXO7)
+2 Pine Boutique Hotel, [https://bit.ly/3kTsXO7](https://bit.ly/3kTsXO7)
 
-3. Sunshine Hotel, [https://bit.ly/3vYQG5R](https://bit.ly/3vYQG5R)
+3 Sunshine Hotel, [https://bit.ly/3vYQG5R](https://bit.ly/3vYQG5R)
 
-4. HOMESTAY IMPIAN, [https://bit.ly/3Pa2xp5](https://bit.ly/3Pa2xp5)
+4 HOMESTAY IMPIAN, [https://bit.ly/3Pa2xp5](https://bit.ly/3Pa2xp5)
 
-5. Bungalo 140 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Gopeng [https://bit.ly/3l1CMt7](https://bit.ly/3l1CMt7)
+5 Bungalo 140 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Gopeng [https://bit.ly/3l1CMt7](https://bit.ly/3l1CMt7)
 
-6. Rumah 1200 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Batu Gajah [https://bit.ly/39979Lu](https://bit.ly/39979Lu)
+6 Rumah 1200 m² dengan 3 kamar tidur dan 2 kamar mandi pribadi di Batu Gajah [https://bit.ly/39979Lu](https://bit.ly/39979Lu)
 
-7. Bemban Garden Homestay [https://bit.ly/3P9k94v](https://bit.ly/3P9k94v)
+7 Bemban Garden Homestay [https://bit.ly/3P9k94v](https://bit.ly/3P9k94v)
 
-8. Rumah 2400 m² dengan 5 kamar tidur dan 3 kamar mandi pribadi di Batu Gajah [https://bit.ly/3yqT4E4](https://bit.ly/3yqT4E4)
+8 Rumah 2400 m² dengan 5 kamar tidur dan 3 kamar mandi pribadi di Batu Gajah [https://bit.ly/3yqT4E4](https://bit.ly/3yqT4E4)
 
 Nota:
 Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel / Penginapan, Lebih baik jika anda menempah Hotel atau Tempahan Hotel Online terlebih dahulu sebelum berlepas. Sebelum bilik penuh di Tempah oleh Orang Lain.
