@@ -392,26 +392,26 @@ Penginapan Di Parit Buntar, Hotel Budget Di Parit Buntar Perak, Hotel Budget Di 
 Chalet Di Parit Buntar, Homestay Murah Di Parit Buntar.
 
 Berikut Senarai Hotel Murah Di Parit Buntar :
-1. [http://bit.do/Hotel-Damai](http://bit.do/Hotel-Damai)
+1 [http://bit.do/Hotel-Damai](http://bit.do/Hotel-Damai)
 3 Bintang
 Lot 6298, Jalan Taiping, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM51
 
-2. [http://bit.do/Frasers-Inn](http://bit.do/Frasers-Inn)
+2 [http://bit.do/Frasers-Inn](http://bit.do/Frasers-Inn)
 2 Bintang
 Lintang Bestari 1, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM55
 
-3. [http://bit.do/K-Garden-Hotel](http://bit.do/K-Garden-Hotel)
+3 [http://bit.do/K-Garden-Hotel](http://bit.do/K-Garden-Hotel)
 2 Bintang
 No. 1, Lorong Ria , Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM79
 
-4. [http://bit.do/Thanks-Hotel](http://bit.do/Thanks-Hotel)
+4 [http://bit.do/Thanks-Hotel](http://bit.do/Thanks-Hotel)
 29, JALAN PEKAKA 5, TAMAN PEKAKA, 14300 NIBONG TEBAL, PULAU PINANG, Parit Buntar, Parit Buntar, Malaysia, 14300
 Harga semalam serendah RM79
 
-5. [http://bit.do/AMIMAS-HOMESTAY](http://bit.do/AMIMAS-HOMESTAY)
+5 [http://bit.do/AMIMAS-HOMESTAY](http://bit.do/AMIMAS-HOMESTAY)
 Parit Buntar, Parit Buntar, Malaysia
 Harga semalam serendah RM131
 
