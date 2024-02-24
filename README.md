@@ -544,17 +544,17 @@ Sun Inns Hotel Ayer Keroh, Malacca, Malaysia.
 
 ### Reddoorz Apartment Near Exit Toll Colomadu - 12 Menit ke Pintu Tol Colomadu
 
-- 12 menit ke Pintu Tol Colomadu.
-- 7 menit ke Universitas Islam Negeri Raden Mas Said Surakarta.
-- 5 menit ke RS Khusus Orthopedi Karima Utama.
-- 8 menit ke TERMINAL KARTASURA.
-- 5 menit ke Universitas Muhammadiyah Surakarta.
-- 6 menit ke RS UNS (Rumah Sakit Universitas Sebelas Maret).
-- 18 menit ke Bandar Udara Internasional Adi Soemarmo.
-- 13 menit ke RS JIH Solo.
-- 14 menit ke Stadion Manahan.
-- 18 menit ke Masjid Raya Sheikh Zayed.
-- 18 menit ke Pura Mangkunegaran.
+-12 menit ke Pintu Tol Colomadu.
+-7 menit ke Universitas Islam Negeri Raden Mas Said Surakarta.
+-5 menit ke RS Khusus Orthopedi Karima Utama.
+-8 menit ke TERMINAL KARTASURA.
+-5 menit ke Universitas Muhammadiyah Surakarta.
+-6 menit ke RS UNS (Rumah Sakit Universitas Sebelas Maret).
+-18 menit ke Bandar Udara Internasional Adi Soemarmo.
+-13 menit ke RS JIH Solo.
+-14 menit ke Stadion Manahan.
+-18 menit ke Masjid Raya Sheikh Zayed.
+-18 menit ke Pura Mangkunegaran.
 
 1. [https://www.facebook.com/photo/?fbid=840955568039536&set=gm.1574278476715279](https://www.facebook.com/photo/?fbid=840955568039536&set=gm.1574278476715279)
 2. [https://www.facebook.com/pages/Colomadu-Karanganyar/178677565661400](https://www.facebook.com/pages/Colomadu-Karanganyar/178677565661400)
