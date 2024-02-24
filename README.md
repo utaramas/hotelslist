@@ -520,11 +520,11 @@ Sun Inns Hotel Ayer Keroh, Malacca, Malaysia.
 
 ### Colomadu 2 Reddoorz Syariah Near Universitas Muhammadiyah Surakarta
 
-- 10 menit ke Universitas Muhammadiyah Surakarta.
-- 16 menit ke Bandar Udara Internasional Adi Soemarmo.
-- 7 menit ke Embarkasi Haji Donohudan Boyolali.
-- 10 menit ke Pondok Pesantren AL-IHSAN PUTRI.
-- 8 menit ke Gerbang Tol Ngemplak.
+10 menit ke Universitas Muhammadiyah Surakarta.
+16 menit ke Bandar Udara Internasional Adi Soemarmo.
+7 menit ke Embarkasi Haji Donohudan Boyolali.
+10 menit ke Pondok Pesantren AL-IHSAN PUTRI.
+8 menit ke Gerbang Tol Ngemplak.
 
 [https://www.facebook.com/pages/UMS-Universitas-Muhammadiyah-Surakarta/463569667039805](https://www.facebook.com/pages/UMS-Universitas-Muhammadiyah-Surakarta/463569667039805)
 
