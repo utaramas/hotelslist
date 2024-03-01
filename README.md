@@ -746,7 +746,7 @@ Hotel Murah Di Parit Buntar Perak, Hotel Murah Di Parit Buntar, Hotel Bajet Di P
 
 Berikut Senarai Hotel Murah Di Parit Buntar :
 
-1. Hotel Damai, Parit Buntar, Malaysia.
+1 Hotel Damai, Parit Buntar, Malaysia.
 
 https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=399166
 3 Bintang
@@ -754,7 +754,7 @@ Lot 6298, Jalan Taiping, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM51.
 2 minit ke Mydin Mall Parit Buntar.
 
-2. Frazel Inn, Parit Buntar, Malaysia.
+2 Frazel Inn, Parit Buntar, Malaysia.
 
 https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=3365747 
 
@@ -762,7 +762,7 @@ https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid
 Lintang Bestari 1, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM55. 6 minit ke Mydin Mall Parit Buntar.
 
-3. K Garden Hotel Parit Buntar, Parit Buntar, Malaysia.
+3 K Garden Hotel Parit Buntar, Parit Buntar, Malaysia.
 
 https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=771483
 
@@ -770,7 +770,7 @@ https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid
 No. 1, Lorong Ria , Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM79. 6 minit ke Mydin Mall Parit Buntar.
 
-4. Thanks Hotel, Parit Buntar, Malaysia.
+4 Thanks Hotel, Parit Buntar, Malaysia.
 
 https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=31637262
 
