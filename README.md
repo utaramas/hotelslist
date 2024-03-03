@@ -748,7 +748,7 @@ Berikut Senarai Hotel Murah Di Parit Buntar :
 
 1 Hotel Damai, Parit Buntar, Malaysia.
 
-https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=399166
+[https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=399166](https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=399166)
 3 Bintang
 Lot 6298, Jalan Taiping, Parit Buntar, Parit Buntar, Malaysia, 34200
 Harga semalam serendah RM51.
@@ -756,7 +756,7 @@ Harga semalam serendah RM51.
 
 2 Frazel Inn, Parit Buntar, Malaysia.
 
-https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=3365747 
+[https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=3365747](https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=3365747) 
 
 2 Bintang
 Lintang Bestari 1, Parit Buntar, Parit Buntar, Malaysia, 34200
@@ -764,7 +764,7 @@ Harga semalam serendah RM55. 6 minit ke Mydin Mall Parit Buntar.
 
 3 K Garden Hotel Parit Buntar, Parit Buntar, Malaysia.
 
-https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=771483
+[https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=771483](https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=771483)
 
 2 Bintang
 No. 1, Lorong Ria , Parit Buntar, Parit Buntar, Malaysia, 34200
@@ -772,7 +772,7 @@ Harga semalam serendah RM79. 6 minit ke Mydin Mall Parit Buntar.
 
 4 Thanks Hotel, Parit Buntar, Malaysia.
 
-https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=31637262
+[https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=31637262](https://www.agoda.com/partners/partnersearch.aspx?pcs=1&cid=1833101&hl=ms-my&hid=31637262)
 
 29,JALAN PEKAKA 5, TAMAN PEKAKA, 14300 NIBONG TEBAL, PULAU PINANG, Parit Buntar, Parit Buntar, Malaysia, 14300
 Harga semalam serendah RM79. 6 minit ke Mydin Mall Parit Buntar.
