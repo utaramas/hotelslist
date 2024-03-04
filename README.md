@@ -781,13 +781,13 @@ Nota : Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di
 
 #hotelparitbuntar #paritbuntar #paritbuntarhomestay
 
-https://www.facebook.com/watch/?v=778006153002893
-https://www.facebook.com/100054798426407/videos/diskaun-hingga-80-hotel-murah-di-parit-buntar/778006153002893
-https://www.instagram.com/p/CC5ECLtHcUS
-https://www.instagram.com/maklumathomestay
-https://www.instagram.com/hotelesbaratosdescuento
-https://m.facebook.com/profile.php?id=561830710823019
-https://m.facebook.com/100054798426407/videos/diskaun-hingga-80-hotel-murah-di-parit-buntar/778006153002893/
+[https://www.facebook.com/watch/?v=778006153002893](https://www.facebook.com/watch/?v=778006153002893)
+[https://www.facebook.com/100054798426407/videos/diskaun-hingga-80-hotel-murah-di-parit-buntar/778006153002893](https://www.facebook.com/100054798426407/videos/diskaun-hingga-80-hotel-murah-di-parit-buntar/778006153002893)
+[https://www.instagram.com/p/CC5ECLtHcUS](https://www.instagram.com/p/CC5ECLtHcUS)
+[https://www.instagram.com/maklumathomestay](https://www.instagram.com/maklumathomestay)
+[https://www.instagram.com/hotelesbaratosdescuento](https://www.instagram.com/hotelesbaratosdescuento)
+[https://m.facebook.com/profile.php?id=561830710823019](https://m.facebook.com/profile.php?id=561830710823019)
+[https://m.facebook.com/100054798426407/videos/diskaun-hingga-80-hotel-murah-di-parit-buntar/778006153002893](https://m.facebook.com/100054798426407/videos/diskaun-hingga-80-hotel-murah-di-parit-buntar/778006153002893)
 
 <hr/>
 
