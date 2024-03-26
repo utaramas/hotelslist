@@ -798,18 +798,18 @@ Nota : Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di
 Hotel budget di brinchang Cameron highland, Penginapan murah di brinchang Cameron highland, hotel bajet brinchang Cameron highlands.
 
 Century Pines Resort Cameron Highlands, Jalan Masjid, Tanah Rata, 39000 Tanah Rata, Pahang, Malaysia.
-Tempah via https://bit.ly/3m0843J
+Tempah via [https://bit.ly/3m0843J](https://bit.ly/3m0843J)
 
 Nota:
 Hanya satu cadangan, sekiranya anda ingin melancong dan ingin menginap di Hotel / Penginapan, Lebih baik jika anda menempah Hotel Hotel atau Tempahan Hotel Online terlebih dahulu sebelum berlepas. Sebelum bilik penuh di Tempah oleh Orang Lain.
 
 #cameronhighlandshotel #cameronhighlands #cameronhighland
 
-https://m.facebook.com/events/1567457587405227?refid=17
-https://www.facebook.com/photo.php?fbid=948511103652162&id=100054798426407&set=gm.1567457627405223
-https://m.facebook.com/profile.php?id=243946726374419
-https://www.facebook.com/pages/Cameron-Pasar-Malam-Golden-Hill/243946726374419
-https://www.facebook.com/events/1567457587405227/
+[https://m.facebook.com/events/1567457587405227?refid=17](https://m.facebook.com/events/1567457587405227?refid=17)
+[https://www.facebook.com/photo.php?fbid=948511103652162&id=100054798426407&set=gm.1567457627405223](https://www.facebook.com/photo.php?fbid=948511103652162&id=100054798426407&set=gm.1567457627405223)
+[https://m.facebook.com/profile.php?id=243946726374419](https://m.facebook.com/profile.php?id=243946726374419)
+[https://www.facebook.com/pages/Cameron-Pasar-Malam-Golden-Hill/243946726374419](https://www.facebook.com/pages/Cameron-Pasar-Malam-Golden-Hill/243946726374419)
+[https://www.facebook.com/events/1567457587405227](https://www.facebook.com/events/1567457587405227)
 
 <hr/>
 
