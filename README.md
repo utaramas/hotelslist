@@ -966,3 +966,17 @@ DISKAUN HINGGA 80%!!!, Hotel Bajet Berdekatan Hospital Kuala Terengganu.
 [https://www.canva.com/design/DAF5ku6lve8/CQnCfAKzLC7BjiHhJVVugQ/view?utm_content=DAF5ku6lve8&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAF5ku6lve8/CQnCfAKzLC7BjiHhJVVugQ/view?utm_content=DAF5ku6lve8&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 <hr/>
+
+### Hotel near Pusat Perubatan Universiti Malaya - 680 M dari UMMC
+
+Hotel near Pusat Perubatan Universiti Malaya - 680 M dari UMMC.
+Urban Living Residence, Kuala Lumpur, Malaysia.
+
+[https://www.facebook.com/events/787593226630815/787593399964131](https://www.facebook.com/events/787593226630815/787593399964131)
+[https://www.facebook.com/events/787593226630815/787593356630802](https://www.facebook.com/events/787593226630815/787593356630802)
+[https://www.facebook.com/events/787593226630815/787593396630798](https://www.facebook.com/events/787593226630815/787593396630798)
+[https://www.facebook.com/events/787593226630815/787593393297465](https://www.facebook.com/events/787593226630815/787593393297465)
+[https://www.facebook.com/events/787593226630815/787593389964132](https://www.facebook.com/events/787593226630815/787593389964132)
+[https://www.facebook.com/events/787593226630815/787593369964134](https://www.facebook.com/events/787593226630815/787593369964134)
+
+<hr/>
