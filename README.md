@@ -909,16 +909,16 @@ https://www.facebook.com/events/392269736475973/
 
 DISKAUN HINGGA 80%!!, hotel berdekatan klia2, hotel near klia 2, hotel berdekatan dengan klia 2.
 
-https://www.facebook.com/permalink.php?story_fbid=pfbid023WBraJWrpGaryjku4Bvdu8RdQufo2veSqQdgk96LqckEDtbEL8MkUq6bWAJ51yUMl&id=375349103053426
-https://www.facebook.com/375349103053426/photos/a.786013468653652/1409868459601480
-https://m.facebook.com/375349103053426/photos/a.786013468653652/1409868459601480
-https://m.facebook.com/permalink.php?story_fbid=pfbid023WBraJWrpGaryjku4Bvdu8RdQufo2veSqQdgk96LqckEDtbEL8MkUq6bWAJ51yUMl&id=375349103053426
-https://www.facebook.com/events/917590646389970/
-https://m.facebook.com/events/917590646389970/
-https://www.facebook.com/photo/?fbid=955446169625322&set=gm.917590683056633
-https://m.facebook.com/photo.php?fbid=955446169625322&id=100054798426407&set=gm.917590683056633&source=48
-https://www.facebook.com/media/set/?vanity=100054798426407&set=a.955444506292155
-https://www.facebook.com/photo?fbid=955442769625662&set=a.955444506292155
+[https://www.facebook.com/permalink.php?story_fbid=pfbid023WBraJWrpGaryjku4Bvdu8RdQufo2veSqQdgk96LqckEDtbEL8MkUq6bWAJ51yUMl&id=375349103053426](https://www.facebook.com/permalink.php?story_fbid=pfbid023WBraJWrpGaryjku4Bvdu8RdQufo2veSqQdgk96LqckEDtbEL8MkUq6bWAJ51yUMl&id=375349103053426)
+[https://www.facebook.com/375349103053426/photos/a.786013468653652/1409868459601480](https://www.facebook.com/375349103053426/photos/a.786013468653652/1409868459601480)
+[https://m.facebook.com/375349103053426/photos/a.786013468653652/1409868459601480](https://m.facebook.com/375349103053426/photos/a.786013468653652/1409868459601480)
+[https://m.facebook.com/permalink.php?story_fbid=pfbid023WBraJWrpGaryjku4Bvdu8RdQufo2veSqQdgk96LqckEDtbEL8MkUq6bWAJ51yUMl&id=375349103053426](https://m.facebook.com/permalink.php?story_fbid=pfbid023WBraJWrpGaryjku4Bvdu8RdQufo2veSqQdgk96LqckEDtbEL8MkUq6bWAJ51yUMl&id=375349103053426)
+[https://www.facebook.com/events/917590646389970](https://www.facebook.com/events/917590646389970)
+[https://m.facebook.com/events/917590646389970](https://m.facebook.com/events/917590646389970)
+[https://www.facebook.com/photo/?fbid=955446169625322&set=gm.917590683056633](https://www.facebook.com/photo/?fbid=955446169625322&set=gm.917590683056633)
+[https://m.facebook.com/photo.php?fbid=955446169625322&id=100054798426407&set=gm.917590683056633&source=48](https://m.facebook.com/photo.php?fbid=955446169625322&id=100054798426407&set=gm.917590683056633&source=48)
+[https://www.facebook.com/media/set/?vanity=100054798426407&set=a.955444506292155](https://www.facebook.com/media/set/?vanity=100054798426407&set=a.955444506292155)
+[https://www.facebook.com/photo?fbid=955442769625662&set=a.955444506292155](https://www.facebook.com/photo?fbid=955442769625662&set=a.955444506292155)
 
 <hr/>
 
